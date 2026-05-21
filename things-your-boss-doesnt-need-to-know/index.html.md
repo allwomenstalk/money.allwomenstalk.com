@@ -3,7 +3,7 @@ title: "7 Things Your Boss Doesnt Need to Know ..."
 description: "How You Spend Your Free Time; Spouse’s Income; Your Side Gigs; Political Views; You’re Looking for Other Opportunities; More ..."
 url: "https://money.allwomenstalk.com/things-your-boss-doesnt-need-to-know/"
 category: "money"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Things Your Boss Doesnt Need to Know ...
@@ -42,16 +42,16 @@ Your boss might be the coolest guy or gal around, but at the end of the day, thi
 
 ## Related Posts
 
-- [7 Things Youll Regret in 7 Years ...](https://inspiration.allwomenstalk.com/things-youll-regret-in-7-years/)
+- [bad things to buy](https://money.allwomenstalk.com/of-the-worst-things-to-buy-used/)
+- [Social Media: the Dos  Donts ...](https://lifestyle.allwomenstalk.com/social-media-the-dos-donts/)
 - [The Biggest Things You Should Never Say to Your Ma...](https://funny.allwomenstalk.com/things-you-should-never-tell-a-man/)
+- [7 Things Not to do Right before You Graduate ...](https://teen.allwomenstalk.com/things-not-to-do-right-before-you-graduate/)
+- [9 Things You Shouldnt do when Youre Sick ...](https://health.allwomenstalk.com/things-you-shouldnt-do-when-youre-sick/)
 - [7 Words You Should Never Use at a Job Interview .....](https://money.allwomenstalk.com/words-you-should-never-use-at-a-job-interview/)
+- [The Most Essential Dos and Donts of Saying Youre S...](https://inspiration.allwomenstalk.com/dos-and-donts-of-apologizing/)
 - [7 Things Not to do when You Are Angry ...](https://inspiration.allwomenstalk.com/things-not-to-do-when-you-are-angry/)
 - [7 Emotionally Abusive Things You Should Never Tell...](https://love.allwomenstalk.com/emotionally-abusive-things-you-should-never-tell-your-partner/)
-- [bad things to buy](https://money.allwomenstalk.com/of-the-worst-things-to-buy-used/)
-- [7 Things Not to do Right before You Graduate ...](https://teen.allwomenstalk.com/things-not-to-do-right-before-you-graduate/)
-- [The Most Essential Dos and Donts of Saying Youre S...](https://inspiration.allwomenstalk.com/dos-and-donts-of-apologizing/)
-- [Social Media: the Dos  Donts ...](https://lifestyle.allwomenstalk.com/social-media-the-dos-donts/)
-- [9 Things You Shouldnt do when Youre Sick ...](https://health.allwomenstalk.com/things-you-shouldnt-do-when-youre-sick/)
+- [7 Things Youll Regret in 7 Years ...](https://inspiration.allwomenstalk.com/things-youll-regret-in-7-years/)
 - [5 Things You Dont Know about Me ...](https://allwomenstalk.com/5-things-you-dont-know-about-me/)
 - [8 Things NOT to Disclose on Facebook ...](https://allwomenstalk.com/8-things-not-to-disclose-on-facebook/)
 

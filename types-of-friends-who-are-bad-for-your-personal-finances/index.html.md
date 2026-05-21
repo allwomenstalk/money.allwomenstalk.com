@@ -3,7 +3,7 @@ title: "7 Types of Friends Who Are Bad for Your Personal Finances ..."
 description: "Bragging Friends; Jealous Friends; The Shopaholic; Rich Friends; The Pryer; More ..."
 url: "https://money.allwomenstalk.com/types-of-friends-who-are-bad-for-your-personal-finances/"
 category: "money"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Types of Friends Who Are Bad for Your Personal Finances ...
@@ -42,16 +42,16 @@ Whether you're looking to save money or pay off debt, smart financial decisions 
 
 ## Related Posts
 
-- [You Never Have to Make a Late Payment Again ...](https://money.allwomenstalk.com/easy-tips-to-never-make-a-late-payment-again/)
-- [If You Havent Planned for These Expenses You Shoul...](https://money.allwomenstalk.com/expenses-you-havent-planned-for-but-should/)
+- [7 Personal Finance Rules You Should Break ...](https://money.allwomenstalk.com/personal-finance-rules-you-should-break/)
+- [6 bad money habits to break in 2023](https://money.allwomenstalk.com/bad-money-habits-you-should-outgrow-by-30/)
 - [fights between roommates](https://money.allwomenstalk.com/ways-to-stop-fighting-with-your-roommate-about-money/)
 - [Everything You Need to Start an Online Business wi...](https://money.allwomenstalk.com/tools-to-start-an-online-business-without-breaking-the-bank/)
 - [7 Things You do Every Day That Can Ruin Your Savin...](https://money.allwomenstalk.com/things-you-do-every-day-that-can-ruin-your-savings/)
-- [7 Personal Finance Rules You Should Break ...](https://money.allwomenstalk.com/personal-finance-rules-you-should-break/)
-- [7 Reasons Why Your Blog Isnt Making Money ...](https://money.allwomenstalk.com/reasons-why-your-blog-isnt-making-money/)
-- [6 bad money habits to break in 2023](https://money.allwomenstalk.com/bad-money-habits-you-should-outgrow-by-30/)
-- [How to Avoid Getting into Debt over Christmas ...](https://money.allwomenstalk.com/ways-to-avoid-getting-into-debt-over-christmas/)
 - [technology causes wastage of money](https://money.allwomenstalk.com/ways-youre-wasting-money-on-technology/)
+- [7 Reasons Why Your Blog Isnt Making Money ...](https://money.allwomenstalk.com/reasons-why-your-blog-isnt-making-money/)
+- [If You Havent Planned for These Expenses You Shoul...](https://money.allwomenstalk.com/expenses-you-havent-planned-for-but-should/)
+- [How to Avoid Getting into Debt over Christmas ...](https://money.allwomenstalk.com/ways-to-avoid-getting-into-debt-over-christmas/)
+- [You Never Have to Make a Late Payment Again ...](https://money.allwomenstalk.com/easy-tips-to-never-make-a-late-payment-again/)
 - [Friendship 101: 7 Things to Avoid ...](https://allwomenstalk.com/friendship-101-7-things-to-avoid/)
 - [8 Signs That You Are a Bad Friend ...](https://allwomenstalk.com/signs-that-you-are-a-bad-friend/)
 

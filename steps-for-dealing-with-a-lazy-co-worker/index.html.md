@@ -3,7 +3,7 @@ title: "7 Steps for Dealing with a Lazy Co-Worker ..."
 description: "Figure out How Their Laziness is Impacting Your Work; Don’t Let Them Distract You; Don’t Let It Affect Your Attitude; Don’t Let Their Ways Rub off on You; Don’t Let Their Work Become Your Responsibility; More ..."
 url: "https://money.allwomenstalk.com/steps-for-dealing-with-a-lazy-co-worker/"
 category: "money"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Steps for Dealing with a Lazy Co\-Worker ...
@@ -48,16 +48,16 @@ Sources:
 
 ## Related Posts
 
-- [Here Are the 7 Politest Ways to Break up with Some...](https://love.allwomenstalk.com/here-are-the-politest-ways-to-break-up-with-someone/)
-- [7 Ways to Deal with the Chronic Complainer in Your...](https://inspiration.allwomenstalk.com/ways-to-deal-with-the-chronic-complainer-in-your-life/)
-- [7 Ways to Handle Competitive Co-Workers ...](https://money.allwomenstalk.com/ways-to-handle-competitive-co-workers/)
-- [coworker passive aggressive](https://money.allwomenstalk.com/ways-to-deal-with-passive-aggressive-co-workers/)
 - [7 Things to do if Your Significant Other Hates You...](https://love.allwomenstalk.com/things-to-do-if-your-significant-other-hates-your-bff/)
-- [Heres How to Deal with Annoying Co-workers ...](https://money.allwomenstalk.com/heres-how-to-deal-with-annoying-co-workers/)
+- [Here Are the 7 Politest Ways to Break up with Some...](https://love.allwomenstalk.com/here-are-the-politest-ways-to-break-up-with-someone/)
 - [Do You Have a Narcissistic Parent Here Are 7 Ways ...](https://parenting.allwomenstalk.com/do-you-have-a-narcissistic-parent-here-are-ways-to-deal/)
 - [Dealing with Passive Aggressive Family Friends and...](https://inspiration.allwomenstalk.com/dealing-with-passive-aggressive-family-friends-and-others/)
+- [7 Ways to Deal with the Chronic Complainer in Your...](https://inspiration.allwomenstalk.com/ways-to-deal-with-the-chronic-complainer-in-your-life/)
 - [giving affection](https://love.allwomenstalk.com/ways-to-show-love-if-youre-not-comfortable-giving-affection/)
+- [Heres How to Deal with Annoying Co-workers ...](https://money.allwomenstalk.com/heres-how-to-deal-with-annoying-co-workers/)
+- [coworker passive aggressive](https://money.allwomenstalk.com/ways-to-deal-with-passive-aggressive-co-workers/)
 - [7 Ways to Feel Less Awkward in Social Situations ....](https://inspiration.allwomenstalk.com/ways-to-feel-less-awkward-in-social-situations/)
+- [7 Ways to Handle Competitive Co-Workers ...](https://money.allwomenstalk.com/ways-to-handle-competitive-co-workers/)
 - [8 Easy and Effective Ways to Cope with Annoying Co...](https://lifestyle.allwomenstalk.com/easy-and-effective-ways-to-cope-with-annoying-co-workers/)
 - [7 Ways to Deal with Rude People at Work ...](https://allwomenstalk.com/7-ways-to-deal-with-rude-people-at-work/)
 

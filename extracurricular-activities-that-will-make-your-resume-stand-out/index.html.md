@@ -3,7 +3,7 @@ title: "Extracurricular Activities That Will Make Your Resume Stand out ..."
 description: "Public Service; Greek Life; Debate Teams; Clubs Related to Your Major; Peer Tutoring; More ..."
 url: "https://money.allwomenstalk.com/extracurricular-activities-that-will-make-your-resume-stand-out/"
 category: "money"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Extracurricular  Activities That Will Make Your Resume Stand out  ...
@@ -32,16 +32,16 @@ Being a peer tutor will stand you in great stead in terms of your resume because
 
 ## Related Posts
 
-- [7 Things to Look for in a Career for Women Who Are...](https://money.allwomenstalk.com/things-to-look-for-in-a-career-for-women-who-are-job-hunting/)
-- [How to Make the Transition from College to the Wor...](https://money.allwomenstalk.com/how-to-make-the-transition-from-college-to-the-workplace/)
-- [Inspiring Ways to Leave Work behind when Youre on ...](https://travel.allwomenstalk.com/inspiring-ways-to-leave-work-behind-when-youre-on-holiday/)
-- [How to Ask for a Raise ...](https://money.allwomenstalk.com/how-to-ask-for-a-raise/)
 - [The Importance of Laughter in the Workplace ...](https://inspiration.allwomenstalk.com/the-importance-of-laughter-in-the-workplace/)
+- [7 Things to Look for in a Career for Women Who Are...](https://money.allwomenstalk.com/things-to-look-for-in-a-career-for-women-who-are-job-hunting/)
+- [How to Ask for a Raise ...](https://money.allwomenstalk.com/how-to-ask-for-a-raise/)
+- [5 Things to Understand before Starting  a New Busi...](https://money.allwomenstalk.com/things-to-understand-before-starting-a-new-business/)
+- [8 Things Youre Doing Wrong when Job Hunting ...](https://money.allwomenstalk.com/things-youre-doing-wrong-when-job-hunting/)
 - [Write Slogans and Greetings for Pay ...](https://money.allwomenstalk.com/write-slogans-and-greetings-for-pay/)
 - [The No B.S. Guide to Finding a Work at Home Job .....](https://money.allwomenstalk.com/guide-to-finding-a-work-at-home-job/)
-- [8 Things Youre Doing Wrong when Job Hunting ...](https://money.allwomenstalk.com/things-youre-doing-wrong-when-job-hunting/)
-- [5 Things to Understand before Starting  a New Busi...](https://money.allwomenstalk.com/things-to-understand-before-starting-a-new-business/)
 - [loreal brilliant emerald conquest](https://lifestyle.allwomenstalk.com/brilliant-ways-to-make-the-most-of-your-lunch-break/)
+- [Inspiring Ways to Leave Work behind when Youre on ...](https://travel.allwomenstalk.com/inspiring-ways-to-leave-work-behind-when-youre-on-holiday/)
+- [How to Make the Transition from College to the Wor...](https://money.allwomenstalk.com/how-to-make-the-transition-from-college-to-the-workplace/)
 - [7 Ways to Boost Your Career ...](https://allwomenstalk.com/7-ways-to-boost-your-career/)
 - [8 on-Campus Jobs to Boost Your Resume ...](https://lifestyle.allwomenstalk.com/on-campus-jobs-to-boost-your-resume/)
 

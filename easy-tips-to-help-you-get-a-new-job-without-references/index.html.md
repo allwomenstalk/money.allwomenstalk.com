@@ -3,7 +3,7 @@ title: "7 Easy Tips to Help You Get a New Job without References ..."
 description: "Use a Teacher or College Professor as a Reference; Use Volunteer Work; Speak with Your Pastor; Provide a Character Reference; Explain Yourself in the Interview; More ..."
 url: "https://money.allwomenstalk.com/easy-tips-to-help-you-get-a-new-job-without-references/"
 category: "money"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Easy Tips to Help You Get a New Job without References ...
@@ -42,16 +42,16 @@ A lack of job references does not necessarily ruin your chances of getting hired
 
 ## Related Posts
 
-- [value in work](https://money.allwomenstalk.com/essential-work-values-employers-look-for/)
-- [job dignity](https://money.allwomenstalk.com/ways-to-resign-from-your-job-with-dignity/)
-- [when is the syep lottery](https://teen.allwomenstalk.com/types-of-jobs-you-may-receive-from-syep/)
-- [how long has the career of a vomit collector been ...](https://money.allwomenstalk.com/awful-jobs-youll-be-glad-you-dont-have/)
-- [competition at work](https://lifestyle.allwomenstalk.com/ways-to-deal-with-competition-at-work/)
-- [skills of a writer](https://books.allwomenstalk.com/skills-of-successful-writers-to-master-today/)
-- [make catch boss](https://money.allwomenstalk.com/ways-to-catch-your-bosss-attention/)
 - [how to work faster and smarter](https://lifestyle.allwomenstalk.com/ways-to-work-smarter-and-faster-on-your-computer/)
-- [surefire event staffing](https://money.allwomenstalk.com/surefire-ways-to-get-that-promotion-this-year/)
+- [make catch boss](https://money.allwomenstalk.com/ways-to-catch-your-bosss-attention/)
+- [value in work](https://money.allwomenstalk.com/essential-work-values-employers-look-for/)
+- [skills of a writer](https://books.allwomenstalk.com/skills-of-successful-writers-to-master-today/)
+- [job dignity](https://money.allwomenstalk.com/ways-to-resign-from-your-job-with-dignity/)
+- [competition at work](https://lifestyle.allwomenstalk.com/ways-to-deal-with-competition-at-work/)
+- [how long has the career of a vomit collector been ...](https://money.allwomenstalk.com/awful-jobs-youll-be-glad-you-dont-have/)
 - [advantages of working in different industries](https://lifestyle.allwomenstalk.com/advantages-of-working-for-an-employer/)
+- [when is the syep lottery](https://teen.allwomenstalk.com/types-of-jobs-you-may-receive-from-syep/)
+- [surefire event staffing](https://money.allwomenstalk.com/surefire-ways-to-get-that-promotion-this-year/)
 - [7 Tips on Applying for a Job ...](https://parenting.allwomenstalk.com/7-tips-on-applying-for-a-job/)
 - [10 Tips on Finding a Job ...](https://allwomenstalk.com/10-tips-on-finding-a-job/)
 

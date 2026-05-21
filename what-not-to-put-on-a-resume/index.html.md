@@ -3,7 +3,7 @@ title: "What NOT to Put on a Resume ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://money.allwomenstalk.com/what-not-to-put-on-a-resume/"
 category: "money"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # What NOT to Put on a Resume ...
@@ -32,16 +32,16 @@ But surely nothing adds up about the candidate who claimed to have “28 dog yea
 
 ## Related Posts
 
-- [what gifts should you never give](https://lifestyle.allwomenstalk.com/presents-you-should-never-give/)
-- [Body Language to Avoid to Create a Good Impression...](https://love.allwomenstalk.com/body-language-to-avoid-to-create-a-good-impression-on-a-first-date/)
 - [things to put on face](https://skincare.allwomenstalk.com/things-you-should-never-put-on-your-face-2/)
-- [10 Things He Really Doesnt Want to Hear from You ....](https://love.allwomenstalk.com/things-he-really-doesnt-want-to-hear-from-you/)
+- [12 Things You Should Never Say to Your Partner ...](https://love.allwomenstalk.com/things-you-should-never-say-to-your-partner/)
+- [what gifts should you never give](https://lifestyle.allwomenstalk.com/presents-you-should-never-give/)
+- [10 Things to Give up for Lent ...](https://inspiration.allwomenstalk.com/things-to-give-up-for-lent/)
+- [Dont Let Your Holiday Season Turn into a Class Reu...](https://inspiration.allwomenstalk.com/dont-let-your-holiday-season-turn-into-a-class-reunion/)
+- [Things You Should Never Put on Your Resume ...](https://money.allwomenstalk.com/things-you-should-never-put-on-your-resume/)
+- [Body Language to Avoid to Create a Good Impression...](https://love.allwomenstalk.com/body-language-to-avoid-to-create-a-good-impression-on-a-first-date/)
 - [50 Words That Can Ruin Your Resume ...](https://money.allwomenstalk.com/words-that-can-ruin-your-resume/)
 - [things that take no talent](https://inspiration.allwomenstalk.com/things-in-that-require-no-talent/)
-- [Dont Let Your Holiday Season Turn into a Class Reu...](https://inspiration.allwomenstalk.com/dont-let-your-holiday-season-turn-into-a-class-reunion/)
-- [12 Things You Should Never Say to Your Partner ...](https://love.allwomenstalk.com/things-you-should-never-say-to-your-partner/)
-- [10 Things to Give up for Lent ...](https://inspiration.allwomenstalk.com/things-to-give-up-for-lent/)
-- [Things You Should Never Put on Your Resume ...](https://money.allwomenstalk.com/things-you-should-never-put-on-your-resume/)
+- [10 Things He Really Doesnt Want to Hear from You ....](https://love.allwomenstalk.com/things-he-really-doesnt-want-to-hear-from-you/)
 - [7 Reasons NOT to Get a Pet ...](https://allwomenstalk.com/7-reasons-not-to-get-a-pet/)
 - [7 Things Not to Say at Our Next Job Interview ...](https://allwomenstalk.com/7-things-not-to-say-at-our-next-job-interview/)
 
