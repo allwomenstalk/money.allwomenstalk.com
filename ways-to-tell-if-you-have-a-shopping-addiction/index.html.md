@@ -3,7 +3,7 @@ title: "7 Ways to Tell if You Have a Shopping Addiction ..."
 description: "You Have Unworn or Unused Items in Your Closet; You Lie about How Much You Spent; Shopping is What You Turn to when You’re Emotional; You Have Maxed out Several Credit Cards; You Argue with Family over Your Shopping Habits; More ..."
 url: "https://money.allwomenstalk.com/ways-to-tell-if-you-have-a-shopping-addiction/"
 category: "money"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Ways to Tell if You Have a Shopping Addiction ...
@@ -43,14 +43,14 @@ I love shopping as much as the next girl. I’ve had to be careful not to let it
 ## Related Posts
 
 - [how do you know its time to change jobs](https://lifestyle.allwomenstalk.com/signs-its-time-to-change-your-job/)
-- [signs there is no growth at work](https://lifestyle.allwomenstalk.com/crucial-signs-youve-outgrown-your-job/)
-- [signs of a dead end job and what to do about it](https://money.allwomenstalk.com/very-obvious-signs-you-are-stuck-in-a-dead-end-job/)
-- [when to get rid of old clothes](https://fashion.allwomenstalk.com/signs-its-time-to-get-rid-of-old-clothes/)
-- [how to know if you love your job](https://lifestyle.allwomenstalk.com/very-telling-signs-you-love-your-job/)
 - [new page of life meaning](https://inspiration.allwomenstalk.com/signs-its-time-to-start-a-new-chapter-in-your-life/)
-- [signs of a bad company](https://lifestyle.allwomenstalk.com/signs-you-work-for-a-bad-company/)
+- [when to get rid of old clothes](https://fashion.allwomenstalk.com/signs-its-time-to-get-rid-of-old-clothes/)
+- [signs of a dead end job and what to do about it](https://money.allwomenstalk.com/very-obvious-signs-you-are-stuck-in-a-dead-end-job/)
 - [ipad addiction](https://lifestyle.allwomenstalk.com/signs-you-are-addicted-to-your-ipad/)
+- [how to know if you love your job](https://lifestyle.allwomenstalk.com/very-telling-signs-you-love-your-job/)
+- [signs of a bad company](https://lifestyle.allwomenstalk.com/signs-you-work-for-a-bad-company/)
 - [signs of bad company friends](https://lifestyle.allwomenstalk.com/warning-signs-you-are-in-bad-company-you-should-know-about/)
+- [signs there is no growth at work](https://lifestyle.allwomenstalk.com/crucial-signs-youve-outgrown-your-job/)
 - [The Late Show with David Lettermans Top Ten Signs ...](https://allwomenstalk.com/the-late-show-with-david-lettermans-top-ten-signs-youre-a-shopaholic/)
 - [8 Ways to Tell Youre a Shopaholic ...](https://allwomenstalk.com/8-ways-to-tell-youre-a-shopaholic/)
 - [8 Ways to Stop Your Shopaholic Ways ...](https://allwomenstalk.com/8-ways-to-stop-your-shopaholic-ways/)

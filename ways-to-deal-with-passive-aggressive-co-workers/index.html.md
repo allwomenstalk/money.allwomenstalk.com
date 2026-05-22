@@ -3,7 +3,7 @@ title: "7 Ways to Deal with Passive Aggressive Co-Workers ..."
 description: "What to Look for; Its Roots; How It Manifests at Work; Embrace Conflict; Set Limits and Consequences; More ..."
 url: "https://money.allwomenstalk.com/ways-to-deal-with-passive-aggressive-co-workers/"
 category: "money"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Ways to Deal with Passive Aggressive Co\-Workers ...
@@ -44,16 +44,16 @@ What passive aggressive experiences have you had and how have you handled collea
 
 ## Related Posts
 
-- [10 Worst Ways to Resolve a Fight with Your Girlfri...](https://funny.allwomenstalk.com/worst-ways-to-resolve-a-fight-with-your-girlfriend/)
-- [Dealing with Passive Aggressive Family Friends and...](https://inspiration.allwomenstalk.com/dealing-with-passive-aggressive-family-friends-and-others/)
-- [Heres How to Deal with Annoying Co-workers ...](https://money.allwomenstalk.com/heres-how-to-deal-with-annoying-co-workers/)
-- [Be the Best BFF Ever with These Simple Suggestions...](https://inspiration.allwomenstalk.com/be-the-best-bff-ever-with-these-simple-suggestions/)
-- [How to Make Friends if Youre Not the Popular Type ...](https://inspiration.allwomenstalk.com/readerknows-how-to-make-friends-if-youre-not-the-popular-type/)
-- [Here Are the 7 Politest Ways to Break up with Some...](https://love.allwomenstalk.com/here-are-the-politest-ways-to-break-up-with-someone/)
-- [How to Make Peace with the Mean Girls in Your Work...](https://money.allwomenstalk.com/how-to-make-peace-with-the-mean-girls-in-your-workplace/)
-- [What to do when Youre Body Shamed ...](https://inspiration.allwomenstalk.com/what-to-do-when-youre-body-shamed/)
-- [7 Ways to Handle Competitive Co-Workers ...](https://money.allwomenstalk.com/ways-to-handle-competitive-co-workers/)
 - [7 Ways to Deal with the Chronic Complainer in Your...](https://inspiration.allwomenstalk.com/ways-to-deal-with-the-chronic-complainer-in-your-life/)
+- [How to Make Friends if Youre Not the Popular Type ...](https://inspiration.allwomenstalk.com/readerknows-how-to-make-friends-if-youre-not-the-popular-type/)
+- [7 Ways to Handle Competitive Co-Workers ...](https://money.allwomenstalk.com/ways-to-handle-competitive-co-workers/)
+- [Here Are the 7 Politest Ways to Break up with Some...](https://love.allwomenstalk.com/here-are-the-politest-ways-to-break-up-with-someone/)
+- [Be the Best BFF Ever with These Simple Suggestions...](https://inspiration.allwomenstalk.com/be-the-best-bff-ever-with-these-simple-suggestions/)
+- [Heres How to Deal with Annoying Co-workers ...](https://money.allwomenstalk.com/heres-how-to-deal-with-annoying-co-workers/)
+- [Dealing with Passive Aggressive Family Friends and...](https://inspiration.allwomenstalk.com/dealing-with-passive-aggressive-family-friends-and-others/)
+- [How to Make Peace with the Mean Girls in Your Work...](https://money.allwomenstalk.com/how-to-make-peace-with-the-mean-girls-in-your-workplace/)
+- [10 Worst Ways to Resolve a Fight with Your Girlfri...](https://funny.allwomenstalk.com/worst-ways-to-resolve-a-fight-with-your-girlfriend/)
+- [What to do when Youre Body Shamed ...](https://inspiration.allwomenstalk.com/what-to-do-when-youre-body-shamed/)
 - [7 Ways to Say No to Your Boss ...](https://lifestyle.allwomenstalk.com/ways-to-say-no-to-your-boss/)
 - [8 Easy and Effective Ways to Cope with Annoying Co...](https://lifestyle.allwomenstalk.com/easy-and-effective-ways-to-cope-with-annoying-co-workers/)
 
