@@ -3,7 +3,7 @@ title: "What NOT to Put on a Resume ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://money.allwomenstalk.com/what-not-to-put-on-a-resume/"
 category: "money"
-last_updated: "2026-05-22"
+last_updated: "2026-05-24"
 ---
 
 # What NOT to Put on a Resume ...
