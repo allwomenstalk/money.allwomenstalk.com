@@ -3,7 +3,7 @@ title: "Things You Should Never Put on Your Resume ..."
 description: "Past Employer Criticism; Excuses; Irrelevant Skills; Old Achievements; Poor Grammar and Spelling; More ..."
 url: "https://money.allwomenstalk.com/things-you-should-never-put-on-your-resume/"
 category: "money"
-last_updated: "2026-05-22"
+last_updated: "2026-05-24"
 ---
 
 # Things You Should Never Put on Your Resume ...
