@@ -42,16 +42,16 @@ Nobody wants to think about identity theft, but it’s a real problem. In fact, 
 
 ## Related Posts
 
-- [hosting tips for a party](https://lifestyle.allwomenstalk.com/hassle-free-tips-to-host-a-party/)
-- [palate of food](https://food.allwomenstalk.com/tasteful-tips-on-how-to-improve-your-palate/)
-- [party planning tips and tricks](https://lifestyle.allwomenstalk.com/tips-for-planning-a-party/)
-- [get street smart](https://lifestyle.allwomenstalk.com/ways-to-be-more-street-smart/)
-- [3rd book of game of thrones](https://lifestyle.allwomenstalk.com/things-a-game-of-thrones-newbie-needs-to-know/)
-- [etiquette of life](https://lifestyle.allwomenstalk.com/important-etiquette-tips-for-daily-life/)
 - [how to take an order in a restaurant](https://lifestyle.allwomenstalk.com/dos-and-donts-of-restaurant-dining/)
+- [get street smart](https://lifestyle.allwomenstalk.com/ways-to-be-more-street-smart/)
+- [party planning tips and tricks](https://lifestyle.allwomenstalk.com/tips-for-planning-a-party/)
+- [etiquette of life](https://lifestyle.allwomenstalk.com/important-etiquette-tips-for-daily-life/)
+- [palate of food](https://food.allwomenstalk.com/tasteful-tips-on-how-to-improve-your-palate/)
 - [what shade of red looks best on me](https://hair.allwomenstalk.com/tips-for-choosing-the-right-shade-of-red/)
-- [independent tips](https://lifestyle.allwomenstalk.com/tips-for-being-independent/)
+- [hosting tips for a party](https://lifestyle.allwomenstalk.com/hassle-free-tips-to-host-a-party/)
+- [3rd book of game of thrones](https://lifestyle.allwomenstalk.com/things-a-game-of-thrones-newbie-needs-to-know/)
 - [first tattoo advice](https://lifestyle.allwomenstalk.com/tips-for-your-first-tattoo/)
+- [independent tips](https://lifestyle.allwomenstalk.com/tips-for-being-independent/)
 - [7 Tips on Protecting Your Family ...](https://parenting.allwomenstalk.com/7-tips-on-protecting-your-family/)
 - [7 Tips for Good Internet Security ...](https://allwomenstalk.com/7-tips-for-good-internet-security/)
 

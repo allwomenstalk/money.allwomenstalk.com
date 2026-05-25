@@ -42,16 +42,16 @@ Christmas is a time for cheer; so don’t hesitate to spread your share. It’s 
 
 ## Related Posts
 
-- [things that are spontaneous](https://lifestyle.allwomenstalk.com/fun-spontaneous-things-to-do-as-an-adult/)
-- [doing things alone](https://lifestyle.allwomenstalk.com/enjoyable-ways-to-do-things-alone/)
-- [things to put on your bucket list](https://lifestyle.allwomenstalk.com/things-to-put-on-your-bucket-list/)
+- [whats your favorite tradition](https://lifestyle.allwomenstalk.com/of-my-favorite-holiday-traditions/)
 - [aun nud](https://beauty.allwomenstalk.com/things-to-do-in-the-nude/)
-- [interesting art forms](https://lifestyle.allwomenstalk.com/great-art-forms-you-should-try/)
-- [what can you get for 5](https://money.allwomenstalk.com/things-to-do-for-5/)
-- [what happens when you mix coke and toothpaste](https://parenting.allwomenstalk.com/fun-science-experiments-for-kids-you-can-do-at-home/)
+- [things to put on your bucket list](https://lifestyle.allwomenstalk.com/things-to-put-on-your-bucket-list/)
 - [90 parties](https://lifestyle.allwomenstalk.com/fun-90s-themed-party-ideas/)
 - [ideas first date](https://love.allwomenstalk.com/fun-first-date-ideas/)
-- [whats your favorite tradition](https://lifestyle.allwomenstalk.com/of-my-favorite-holiday-traditions/)
+- [what can you get for 5](https://money.allwomenstalk.com/things-to-do-for-5/)
+- [things that are spontaneous](https://lifestyle.allwomenstalk.com/fun-spontaneous-things-to-do-as-an-adult/)
+- [interesting art forms](https://lifestyle.allwomenstalk.com/great-art-forms-you-should-try/)
+- [what happens when you mix coke and toothpaste](https://parenting.allwomenstalk.com/fun-science-experiments-for-kids-you-can-do-at-home/)
+- [doing things alone](https://lifestyle.allwomenstalk.com/enjoyable-ways-to-do-things-alone/)
 - [7 Ways to save on Christmas Gifts ...](https://allwomenstalk.com/7-ways-to-save-on-christmas-gifts/)
 - [7 Things to do in December ...](https://allwomenstalk.com/7-things-to-do-in-december/)
 

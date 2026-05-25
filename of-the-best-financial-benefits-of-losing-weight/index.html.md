@@ -42,16 +42,16 @@ So yes, losing weight has a multitude of health benefits and it can add years to
 
 ## Related Posts
 
-- [how to help a friend lose weight](https://weightloss.allwomenstalk.com/ways-to-support-a-friend-whos-trying-to-lose-weight/)
+- [healthy condiments for weight loss](https://food.allwomenstalk.com/condiment-swaps-that-can-help-you-lose-weight/)
+- [80 20 rule losing weight](https://weightloss.allwomenstalk.com/wonderful-weight-loss-infographics-to-help-you-achieve-your-goals/)
 - [weight loss journey app](https://apps.allwomenstalk.com/amazing-apps-for-your-weight-loss-journey/)
 - [how to lose 9 pounds in 2 weeks](https://weightloss.allwomenstalk.com/steps-to-help-you-lose-9-pounds-in-2-weeks/)
-- [healthy condiments for weight loss](https://food.allwomenstalk.com/condiment-swaps-that-can-help-you-lose-weight/)
-- [funny responses to have you lost weight](https://funny.allwomenstalk.com/clever-replies-for-when-someone-comments-on-your-weight/)
-- [is suya good for weight loss](https://food.allwomenstalk.com/foods-perfect-for-weight-loss/)
-- [80 20 rule losing weight](https://weightloss.allwomenstalk.com/wonderful-weight-loss-infographics-to-help-you-achieve-your-goals/)
-- [creative ways to lose weight](https://weightloss.allwomenstalk.com/easy-and-creative-weight-loss-tips-to-transform-your-lifestyle/)
-- [weight loss infographics](https://weightloss.allwomenstalk.com/weight-loss-infographics-to-keep-you-in-the-know/)
 - [berry smoothies for weight loss](https://food.allwomenstalk.com/berries-for-weight-loss-that-work-like-magic/)
+- [funny responses to have you lost weight](https://funny.allwomenstalk.com/clever-replies-for-when-someone-comments-on-your-weight/)
+- [how to help a friend lose weight](https://weightloss.allwomenstalk.com/ways-to-support-a-friend-whos-trying-to-lose-weight/)
+- [is suya good for weight loss](https://food.allwomenstalk.com/foods-perfect-for-weight-loss/)
+- [weight loss infographics](https://weightloss.allwomenstalk.com/weight-loss-infographics-to-keep-you-in-the-know/)
+- [creative ways to lose weight](https://weightloss.allwomenstalk.com/easy-and-creative-weight-loss-tips-to-transform-your-lifestyle/)
 - [23 Healthy Ways to Lose Weight ...](https://allwomenstalk.com/losing-weight-the-healthy-way/)
 - [10 Signs You Will Lose Weight Fast ...](https://allwomenstalk.com/10-signs-you-will-lose-weight-fast/)
 

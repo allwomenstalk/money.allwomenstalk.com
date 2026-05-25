@@ -44,15 +44,15 @@ What other lessons can we learn from people who are broke?
 
 ## Related Posts
 
-- [get out of debt advice](https://money.allwomenstalk.com/pieces-of-get-out-of-debt-advice-you-should-ignore/)
-- [7 Common Retirement Savings Mistakes You Should Av...](https://money.allwomenstalk.com/common-retirement-savings-mistakes-you-should-avoid-at-all-costs/)
-- [7 Helpful Tricks to Stop an Overspending Spouse .....](https://money.allwomenstalk.com/helpful-tricks-to-stop-an-overspending-spouse/)
-- [7 Ways to Fund Your Retirement if You Dont Have a ...](https://money.allwomenstalk.com/ways-to-fund-your-retirement-if-you-dont-have-a-pension/)
-- [7 Everyday Expenses That Might Destroy Your Budget...](https://money.allwomenstalk.com/everyday-expenses-that-might-destroy-your-budget/)
 - [balance transfer faq](https://money.allwomenstalk.com/things-you-need-to-know-about-balance-transfer-credit-cards/)
-- [7 of the Best Ways to Be Prepared Financially for ...](https://money.allwomenstalk.com/of-the-best-ways-to-be-prepared-financially-for-an-injury/)
-- [7 Smart Reasons to save Money with a Certificate o...](https://money.allwomenstalk.com/smart-reasons-to-save-money-with-a-certificate-of-deposit/)
+- [7 Common Retirement Savings Mistakes You Should Av...](https://money.allwomenstalk.com/common-retirement-savings-mistakes-you-should-avoid-at-all-costs/)
+- [get out of debt advice](https://money.allwomenstalk.com/pieces-of-get-out-of-debt-advice-you-should-ignore/)
 - [7 Ways to Deal with a Shrinking Income ...](https://money.allwomenstalk.com/ways-to-deal-with-a-shrinking-income/)
+- [7 Smart Reasons to save Money with a Certificate o...](https://money.allwomenstalk.com/smart-reasons-to-save-money-with-a-certificate-of-deposit/)
+- [7 Everyday Expenses That Might Destroy Your Budget...](https://money.allwomenstalk.com/everyday-expenses-that-might-destroy-your-budget/)
+- [7 Helpful Tricks to Stop an Overspending Spouse .....](https://money.allwomenstalk.com/helpful-tricks-to-stop-an-overspending-spouse/)
+- [7 of the Best Ways to Be Prepared Financially for ...](https://money.allwomenstalk.com/of-the-best-ways-to-be-prepared-financially-for-an-injury/)
+- [7 Ways to Fund Your Retirement if You Dont Have a ...](https://money.allwomenstalk.com/ways-to-fund-your-retirement-if-you-dont-have-a-pension/)
 - [7 Tips on How to Get a Perfect Credit Score ...](https://money.allwomenstalk.com/tips-on-how-to-get-a-perfect-credit-score/)
 - [7 Steps to Improve Your Finances ...](https://allwomenstalk.com/7-steps-to-improve-your-finances/)
 - [7 Common Myths about People with Money ...](https://money.allwomenstalk.com/common-myths-about-people-with-money/)

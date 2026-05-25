@@ -224,16 +224,16 @@ Is your dream job on the list?
 
 ## Related Posts
 
-- [amulets of egypt](https://jewelry.allwomenstalk.com/how-much-do-you-know-about-ancient-egyptian-amulets/)
-- [cutting hair shorter](https://hair.allwomenstalk.com/is-it-time-to-cut-your-hair-short/)
-- [what to do when the girl you like is taken](https://love.allwomenstalk.com/what-do-you-do-when-your-crush-is-taken/)
+- [what type of reader am i](https://books.allwomenstalk.com/what-type-of-reader-are-you/)
+- [hitguys](https://love.allwomenstalk.com/hot-guys-which-one-is-your-type/)
+- [following footsteps](https://lifestyle.allwomenstalk.com/do-your-parents-want-you-to-follow-in-their-footsteps/)
 - [bored of my job but it pays well](https://money.allwomenstalk.com/do-you-really-hate-your-job-or-are-you-just-bored/)
 - [destined with you break up](https://love.allwomenstalk.com/are-you-destined-to-break-up/)
-- [following footsteps](https://lifestyle.allwomenstalk.com/do-your-parents-want-you-to-follow-in-their-footsteps/)
-- [hitguys](https://love.allwomenstalk.com/hot-guys-which-one-is-your-type/)
-- [capsule wardrobe books](https://fashion.allwomenstalk.com/what-on-earth-is-a-capsule-wardrobe-and-why-do-you-need-to-try-it-asap/)
-- [what type of reader am i](https://books.allwomenstalk.com/what-type-of-reader-are-you/)
+- [amulets of egypt](https://jewelry.allwomenstalk.com/how-much-do-you-know-about-ancient-egyptian-amulets/)
 - [someone with good values](https://inspiration.allwomenstalk.com/what-values-make-you-a-good-person/)
+- [what to do when the girl you like is taken](https://love.allwomenstalk.com/what-do-you-do-when-your-crush-is-taken/)
+- [capsule wardrobe books](https://fashion.allwomenstalk.com/what-on-earth-is-a-capsule-wardrobe-and-why-do-you-need-to-try-it-asap/)
+- [cutting hair shorter](https://hair.allwomenstalk.com/is-it-time-to-cut-your-hair-short/)
 - [New Opportunities Knocking.
 
 I Often Wonder Whethe...](https://allwomenstalk.com/new-opportunities-knockingi-often-wonder-whethe/)

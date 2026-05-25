@@ -42,16 +42,16 @@ Asking your boss for what you want shows initiative, drive, and optimism. Bosses
 
 ## Related Posts
 
-- [signs you are being headhunted](https://lifestyle.allwomenstalk.com/ways-you-know-youve-made-it-in-your-career/)
-- [workersonboard weekly jobs](https://money.allwomenstalk.com/great-websites-to-find-work-at-home-jobs/)
+- [types of work people do](https://lifestyle.allwomenstalk.com/types-of-people-you-find-in-the-work-office/)
 - [things you need in your office](https://lifestyle.allwomenstalk.com/important-things-you-need-to-have-at-your-office-desk/)
-- [great first job](https://teen.allwomenstalk.com/best-first-jobs/)
 - [best saleswoman](https://money.allwomenstalk.com/ways-to-become-a-successful-saleswoman/)
-- [how to make your business look more professional](https://lifestyle.allwomenstalk.com/tips-to-make-your-business-look-more-professional/)
-- [alternative to briefcase](https://bags.allwomenstalk.com/briefcase-alternatives-you-can-use-for-work/)
+- [great first job](https://teen.allwomenstalk.com/best-first-jobs/)
 - [how to get exposure](https://money.allwomenstalk.com/useful-tips-for-increasing-your-professional-visibility-and-exposure/)
 - [young professional lifestyle](https://lifestyle.allwomenstalk.com/things-all-young-professionals-need/)
-- [types of work people do](https://lifestyle.allwomenstalk.com/types-of-people-you-find-in-the-work-office/)
+- [workersonboard weekly jobs](https://money.allwomenstalk.com/great-websites-to-find-work-at-home-jobs/)
+- [alternative to briefcase](https://bags.allwomenstalk.com/briefcase-alternatives-you-can-use-for-work/)
+- [how to make your business look more professional](https://lifestyle.allwomenstalk.com/tips-to-make-your-business-look-more-professional/)
+- [signs you are being headhunted](https://lifestyle.allwomenstalk.com/ways-you-know-youve-made-it-in-your-career/)
 - [7 Effective Ways to Get a Raise at Work ...](https://allwomenstalk.com/7-effective-ways-to-get-a-raise-at-work/)
 - [7 Ways to Boost Your Career ...](https://allwomenstalk.com/7-ways-to-boost-your-career/)
 

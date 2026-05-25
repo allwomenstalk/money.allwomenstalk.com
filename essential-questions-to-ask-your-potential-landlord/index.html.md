@@ -44,14 +44,14 @@ In renting several different apartments over the years, I have learned that aski
 
 - [tips for moving house quickly](https://lifestyle.allwomenstalk.com/tips-for-moving-house-and-making-it-simpler/)
 - [perfect roomate](https://lifestyle.allwomenstalk.com/signs-youve-found-the-perfect-roommate/)
-- [trash bag hanger trick](https://lifestyle.allwomenstalk.com/tips-for-moving-that-will-certainly-make-your-life-easier/)
+- [what to know about fha loans](https://money.allwomenstalk.com/important-things-you-should-know-about-fha-mortgages/)
 - [opposite gender roommate](https://lifestyle.allwomenstalk.com/things-to-consider-before-moving-in-with-a-male-roommate/)
-- [common myths about traveling abroad](https://travel.allwomenstalk.com/common-misconceptions-about-moving-abroad/)
 - [benefits of being house poor](https://money.allwomenstalk.com/reasons-to-buy-the-least-expensive-house-you-can-afford/)
 - [tried to be nice](https://lifestyle.allwomenstalk.com/tried-and-true-reasons-to-be-nice-to-your-neighbors/)
-- [how to build a panic room for a home invasion](https://lifestyle.allwomenstalk.com/ways-to-handle-a-home-invasion/)
-- [what to know about fha loans](https://money.allwomenstalk.com/important-things-you-should-know-about-fha-mortgages/)
+- [common myths about traveling abroad](https://travel.allwomenstalk.com/common-misconceptions-about-moving-abroad/)
+- [trash bag hanger trick](https://lifestyle.allwomenstalk.com/tips-for-moving-that-will-certainly-make-your-life-easier/)
 - [are concrete apartments soundproof](https://lifestyle.allwomenstalk.com/reasons-why-condo-living-beats-owning-a-house/)
+- [how to build a panic room for a home invasion](https://lifestyle.allwomenstalk.com/ways-to-handle-a-home-invasion/)
 - [7 Things to Put on Your Checklist before Moving .....](https://allwomenstalk.com/7-things-to-put-on-your-checklist-before-moving/)
 - [7 Things You Wish You Could Say to Your Landlord ....](https://allwomenstalk.com/7-things-you-wish-you-could-say-to-your-landlord/)
 

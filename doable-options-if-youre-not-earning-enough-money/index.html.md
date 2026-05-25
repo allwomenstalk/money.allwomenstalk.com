@@ -44,15 +44,15 @@ What steps have you taken to earn additional cash?
 
 ## Related Posts
 
-- [dealing with student loan debt](https://money.allwomenstalk.com/strategies-for-dealing-with-student-loan-debt/)
 - [debt myths](https://money.allwomenstalk.com/money-myths-that-keep-you-in-debt/)
-- [credit card related questions](https://money.allwomenstalk.com/important-questions-to-ask-when-applying-for-a-credit-card/)
-- [psychological benefits of paying off debt](https://money.allwomenstalk.com/common-mental-barriers-to-paying-off-debt/)
-- [financial moves for stay-at-home parent](https://money.allwomenstalk.com/financial-moves-before-becoming-a-stay-at-home-parent/)
-- [dont teach your child to be rich](https://money.allwomenstalk.com/things-that-could-happen-if-you-dont-teach-your-kids-about-money/)
-- [how to gain knowledge in finance](https://money.allwomenstalk.com/best-ways-to-improve-your-financial-knowledge/)
-- [financial advice for new graduates](https://money.allwomenstalk.com/savvy-and-simple-financial-tips-for-new-graduates/)
 - [needs work credit score](https://money.allwomenstalk.com/possible-signs-that-your-credit-score-needs-work/)
+- [psychological benefits of paying off debt](https://money.allwomenstalk.com/common-mental-barriers-to-paying-off-debt/)
+- [credit card related questions](https://money.allwomenstalk.com/important-questions-to-ask-when-applying-for-a-credit-card/)
+- [dont teach your child to be rich](https://money.allwomenstalk.com/things-that-could-happen-if-you-dont-teach-your-kids-about-money/)
+- [financial moves for stay-at-home parent](https://money.allwomenstalk.com/financial-moves-before-becoming-a-stay-at-home-parent/)
+- [dealing with student loan debt](https://money.allwomenstalk.com/strategies-for-dealing-with-student-loan-debt/)
+- [financial advice for new graduates](https://money.allwomenstalk.com/savvy-and-simple-financial-tips-for-new-graduates/)
+- [how to gain knowledge in finance](https://money.allwomenstalk.com/best-ways-to-improve-your-financial-knowledge/)
 - [ways to confess](https://money.allwomenstalk.com/ways-to-confess-money-problems-to-your-partner/)
 - [7 Ways to Earn Extra Money for a Big Goal ...](https://lifestyle.allwomenstalk.com/ways-to-earn-extra-money-for-a-big-goal/)
 - [7 Sure Ways to save Money ...](https://allwomenstalk.com/7-sure-ways-to-save-money/)

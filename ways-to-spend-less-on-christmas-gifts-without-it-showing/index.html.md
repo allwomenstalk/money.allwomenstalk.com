@@ -56,16 +56,16 @@ These are some ways you can save on your Christmas gifts without it showing. Wha
 
 ## Related Posts
 
-- [the cure wallet](https://money.allwomenstalk.com/how-to-cure-your-shopping-addiction-and-keep-your-wallet-thick/)
-- [make an extra 100 a week](https://money.allwomenstalk.com/awesome-ways-to-earn-an-extra-100-this-weekend/)
-- [cut down the internet](https://inspiration.allwomenstalk.com/ways-to-cut-down-the-time-you-spend-online/)
-- [money stashes](https://money.allwomenstalk.com/clever-and-crafty-tips-for-stashing-your-cash-at-home/)
-- [shop your own wardrobe](https://fashion.allwomenstalk.com/ways-to-shop-your-own-closet-and-save-money/)
 - [you have been saving your allowance](https://teen.allwomenstalk.com/tips-for-saving-spending-your-allowance/)
-- [are fresh or frozen vegetables cheaper](https://food.allwomenstalk.com/save-money-on-groceries-by-buying-these-vegetables-frozen-rather-than-fresh/)
-- [alternative airports to boston](https://travel.allwomenstalk.com/alternate-airports-that-can-save-you-buckets-of-bucks/)
+- [make an extra 100 a week](https://money.allwomenstalk.com/awesome-ways-to-earn-an-extra-100-this-weekend/)
+- [shop your own wardrobe](https://fashion.allwomenstalk.com/ways-to-shop-your-own-closet-and-save-money/)
+- [money stashes](https://money.allwomenstalk.com/clever-and-crafty-tips-for-stashing-your-cash-at-home/)
+- [cut down the internet](https://inspiration.allwomenstalk.com/ways-to-cut-down-the-time-you-spend-online/)
 - [cheapest clubbing holidays](https://travel.allwomenstalk.com/how-to-party-hard-on-holiday-without-spending-a-ton-of-cash/)
 - [should i buy myself something expensive](https://money.allwomenstalk.com/ways-to-talk-yourself-out-of-buying-something-you-do-not-even-need-or-like/)
+- [the cure wallet](https://money.allwomenstalk.com/how-to-cure-your-shopping-addiction-and-keep-your-wallet-thick/)
+- [are fresh or frozen vegetables cheaper](https://food.allwomenstalk.com/save-money-on-groceries-by-buying-these-vegetables-frozen-rather-than-fresh/)
+- [alternative airports to boston](https://travel.allwomenstalk.com/alternate-airports-that-can-save-you-buckets-of-bucks/)
 - [8 Smart Tips on How to save Money ...](https://money.allwomenstalk.com/smart-tips-on-how-to-save-money/)
 - [7 Ways to save Money While Spending It ...](https://money.allwomenstalk.com/ways-to-save-money-while-spending-it/)
 

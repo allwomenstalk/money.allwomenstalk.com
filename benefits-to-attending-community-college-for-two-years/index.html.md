@@ -23,15 +23,15 @@ In the state of Massachusetts, which is where I was, they have a program called 
 ## Related Posts
 
 - [Awesome Ways to Start Prepping for Exams Now ...](https://teen.allwomenstalk.com/ways-to-start-prepping-for-exams-now/)
+- [The Best Tips Ever to Ace Exams ...](https://teen.allwomenstalk.com/best-tips-to-ace-exams/)
 - [Awesome Tips for How to Avoid Getting a College Re...](https://teen.allwomenstalk.com/awesome-tips-for-how-to-avoid-getting-a-college-rejection/)
-- [things to do before graduating college](https://lifestyle.allwomenstalk.com/things-to-do-before-you-graduate-college-2/)
-- [Pro Tips for Managing Anxiety at College ...](https://health.allwomenstalk.com/tips-for-managing-anxiety-at-college/)
 - [Girls Guide to Choosing Your Degree ...](https://money.allwomenstalk.com/guide-to-choosing-your-degree/)
 - [10 Things to Always Consider  when Youre Applying ...](https://lifestyle.allwomenstalk.com/things-to-consider-when-applying-for-college/)
-- [How to Choose  the Best College for You ...](https://teen.allwomenstalk.com/how-to-choose-the-best-college-for-you/)
-- [How to Manage Multiple College Deadlines ...](https://teen.allwomenstalk.com/how-to-manage-multiple-college-deadlines/)
-- [The Best Tips Ever to Ace Exams ...](https://teen.allwomenstalk.com/best-tips-to-ace-exams/)
 - [Teenagers Guide on How to Survive High School ...](https://teen.allwomenstalk.com/how-to-survive-high-school/)
+- [things to do before graduating college](https://lifestyle.allwomenstalk.com/things-to-do-before-you-graduate-college-2/)
+- [How to Manage Multiple College Deadlines ...](https://teen.allwomenstalk.com/how-to-manage-multiple-college-deadlines/)
+- [Pro Tips for Managing Anxiety at College ...](https://health.allwomenstalk.com/tips-for-managing-anxiety-at-college/)
+- [How to Choose  the Best College for You ...](https://teen.allwomenstalk.com/how-to-choose-the-best-college-for-you/)
 - [7 Reasons to Choose Community College ...](https://lifestyle.allwomenstalk.com/7-reasons-to-choose-community-college/)
 - [The Benefits of Completing a University Degree ...](https://allwomenstalk.com/benefits-of-completing-university-degree/)
 

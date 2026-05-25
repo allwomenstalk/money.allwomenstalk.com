@@ -44,16 +44,16 @@ What are some common money excuses?
 
 ## Related Posts
 
-- [what they dont teach you about money](https://money.allwomenstalk.com/things-your-parents-didnt-teach-you-about-money/)
+- [used car buying mistakes](https://lifestyle.allwomenstalk.com/car-buying-mistakes-and-how-to-avoid-them/)
 - [homebudget with sync](https://apps.allwomenstalk.com/fantastic-apps-for-personal-finance-and-budgeting/)
+- [what they dont teach you about money](https://money.allwomenstalk.com/things-your-parents-didnt-teach-you-about-money/)
+- [how to separate business and personal finances](https://money.allwomenstalk.com/ways-to-run-your-personal-finances-like-a-business/)
+- [house money pit](https://money.allwomenstalk.com/ways-to-cope-with-a-money-pit/)
 - [financial buddy reviews](https://money.allwomenstalk.com/things-to-look-for-in-a-financial-buddy/)
 - [songs about being broke](https://money.allwomenstalk.com/reasons-why-being-broke-is-a-blessing-in-disguise/)
 - [best credit card for lifestyle](https://money.allwomenstalk.com/best-credit-cards-for-different-lifestyles/)
 - [cope or drop](https://money.allwomenstalk.com/ways-to-cope-with-a-drop-in-income/)
-- [how to separate business and personal finances](https://money.allwomenstalk.com/ways-to-run-your-personal-finances-like-a-business/)
-- [house money pit](https://money.allwomenstalk.com/ways-to-cope-with-a-money-pit/)
 - [good excuses to borrow money](https://money.allwomenstalk.com/lame-excuses-for-not-saving-money/)
-- [used car buying mistakes](https://lifestyle.allwomenstalk.com/car-buying-mistakes-and-how-to-avoid-them/)
 - [6 Reasons Why Your Money Just Disappears ...](https://allwomenstalk.com/6-reasons-why-your-money-just-disappears/)
 - [10 Reasons Why I Dont Have Money ...](https://money.allwomenstalk.com/reasons-why-i-dont-have-money/)
 

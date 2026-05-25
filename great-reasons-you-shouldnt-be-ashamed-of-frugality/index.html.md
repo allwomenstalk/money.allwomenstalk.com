@@ -42,16 +42,16 @@ Being frugal has its benefits, and don't let others tell you differently. Are yo
 
 ## Related Posts
 
-- [depressed because of money](https://money.allwomenstalk.com/tips-to-stop-feeling-hopeless-about-money/)
-- [overspending friends](https://money.allwomenstalk.com/are-your-friends-making-you-overspend-heres-what-to-do/)
-- [how to be more disciplined with money](https://money.allwomenstalk.com/ways-to-be-financially-disciplined-at-a-young-age/)
-- [ways to be proactive](https://money.allwomenstalk.com/ways-to-be-proactive-with-your-money/)
+- [can money fix everything that is wrong in your lif...](https://money.allwomenstalk.com/reasons-money-wont-solve-your-problems/)
 - [overdraft fee strategy](https://money.allwomenstalk.com/of-the-best-ways-to-handle-an-overdraft-fee/)
 - [stretch a dollar](https://money.allwomenstalk.com/ways-to-stretch-the-dollar-when-raising-children-on-your-own/)
-- [can money fix everything that is wrong in your lif...](https://money.allwomenstalk.com/reasons-money-wont-solve-your-problems/)
-- [improper way of handling money](https://money.allwomenstalk.com/signs-you-are-bad-at-handling-money-and-ways-to-fix-it/)
-- [funny credit card design](https://money.allwomenstalk.com/you-might-prefer-cash-but-heres-times-when-its-better-to-use-credit/)
 - [teaching credit cards to high school students](https://money.allwomenstalk.com/reasons-you-need-to-get-a-credit-card-while-in-high-school/)
+- [improper way of handling money](https://money.allwomenstalk.com/signs-you-are-bad-at-handling-money-and-ways-to-fix-it/)
+- [ways to be proactive](https://money.allwomenstalk.com/ways-to-be-proactive-with-your-money/)
+- [overspending friends](https://money.allwomenstalk.com/are-your-friends-making-you-overspend-heres-what-to-do/)
+- [funny credit card design](https://money.allwomenstalk.com/you-might-prefer-cash-but-heres-times-when-its-better-to-use-credit/)
+- [how to be more disciplined with money](https://money.allwomenstalk.com/ways-to-be-financially-disciplined-at-a-young-age/)
+- [depressed because of money](https://money.allwomenstalk.com/tips-to-stop-feeling-hopeless-about-money/)
 - [10 Reasons Why I Dont Have Money ...](https://money.allwomenstalk.com/reasons-why-i-dont-have-money/)
 - [8 Reasons to Have Less ...](https://lifestyle.allwomenstalk.com/reasons-to-have-less/)
 

@@ -42,16 +42,16 @@ Long-distance relationships are tough. Not only are you away from the person you
 
 ## Related Posts
 
-- [7 Ways Youre Ruining Your Own Chances of Finding L...](https://love.allwomenstalk.com/ways-youre-ruining-your-own-chances-of-finding-love/)
-- [arguments on holiday](https://love.allwomenstalk.com/couples-on-holiday-here-are-the-most-common-arguments-they-have/)
 - [An Independent Girls Guide to Relationships ...](https://love.allwomenstalk.com/an-independent-girls-guide-to-relationships/)
-- [7 New Rules for Surviving Modern Long Distance Rel...](https://love.allwomenstalk.com/new-rules-for-surviving-modern-long-distance-relationships/)
-- [In Love Dont Lose Your Financial Focus and Make Th...](https://money.allwomenstalk.com/in-love-dont-lose-your-financial-focus-and-make-these-mistakes/)
+- [7 Bad Habits to Have in a Relationship ...](https://love.allwomenstalk.com/bad-habits-to-have-in-a-relationship/)
 - [Heres How Technology Can Ruin Your Relationship .....](https://love.allwomenstalk.com/heres-how-technology-can-ruin-your-relationship/)
 - [newlywed game app](https://love.allwomenstalk.com/the-newlywed-game-ways-to-make-it-through-the-first-year/)
-- [7 Bad Habits to Have in a Relationship ...](https://love.allwomenstalk.com/bad-habits-to-have-in-a-relationship/)
-- [How to Make Your Relationship Amazing: 7 Statement...](https://love.allwomenstalk.com/how-to-make-your-relationship-amazing-statements-that-will-change-how-you-communicate/)
+- [7 Ways Youre Ruining Your Own Chances of Finding L...](https://love.allwomenstalk.com/ways-youre-ruining-your-own-chances-of-finding-love/)
+- [In Love Dont Lose Your Financial Focus and Make Th...](https://money.allwomenstalk.com/in-love-dont-lose-your-financial-focus-and-make-these-mistakes/)
 - [Want a Perfect Relationship Here Are 9 Ways to Avo...](https://love.allwomenstalk.com/want-a-perfect-relationship-here-are-ways-to-avoid-hurting-your-mans-feelings/)
+- [How to Make Your Relationship Amazing: 7 Statement...](https://love.allwomenstalk.com/how-to-make-your-relationship-amazing-statements-that-will-change-how-you-communicate/)
+- [arguments on holiday](https://love.allwomenstalk.com/couples-on-holiday-here-are-the-most-common-arguments-they-have/)
+- [7 New Rules for Surviving Modern Long Distance Rel...](https://love.allwomenstalk.com/new-rules-for-surviving-modern-long-distance-relationships/)
 - [7 Facinatingly Simple but Effective Ways to Make a...](https://love.allwomenstalk.com/facinatingly-simple-but-effective-ways-to-make-a-long-distance-relationship-work/)
 - [10 Ways to Make a Long Distance Relationship Work ...](https://allwomenstalk.com/10-ways-to-make-long-distance-relationship-work/)
 

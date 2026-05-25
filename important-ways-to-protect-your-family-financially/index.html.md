@@ -42,16 +42,16 @@ Looking after your family financially is undoubtedly a priority, and the decisio
 
 ## Related Posts
 
-- [dealing with student loan debt](https://money.allwomenstalk.com/strategies-for-dealing-with-student-loan-debt/)
-- [financial moves for stay-at-home parent](https://money.allwomenstalk.com/financial-moves-before-becoming-a-stay-at-home-parent/)
-- [psychological benefits of paying off debt](https://money.allwomenstalk.com/common-mental-barriers-to-paying-off-debt/)
-- [financial advice for new graduates](https://money.allwomenstalk.com/savvy-and-simple-financial-tips-for-new-graduates/)
-- [how to gain knowledge in finance](https://money.allwomenstalk.com/best-ways-to-improve-your-financial-knowledge/)
-- [dont teach your child to be rich](https://money.allwomenstalk.com/things-that-could-happen-if-you-dont-teach-your-kids-about-money/)
 - [what to do if you dont make enough money](https://money.allwomenstalk.com/doable-options-if-youre-not-earning-enough-money/)
-- [debt myths](https://money.allwomenstalk.com/money-myths-that-keep-you-in-debt/)
+- [psychological benefits of paying off debt](https://money.allwomenstalk.com/common-mental-barriers-to-paying-off-debt/)
+- [dont teach your child to be rich](https://money.allwomenstalk.com/things-that-could-happen-if-you-dont-teach-your-kids-about-money/)
 - [needs work credit score](https://money.allwomenstalk.com/possible-signs-that-your-credit-score-needs-work/)
 - [credit card related questions](https://money.allwomenstalk.com/important-questions-to-ask-when-applying-for-a-credit-card/)
+- [how to gain knowledge in finance](https://money.allwomenstalk.com/best-ways-to-improve-your-financial-knowledge/)
+- [dealing with student loan debt](https://money.allwomenstalk.com/strategies-for-dealing-with-student-loan-debt/)
+- [debt myths](https://money.allwomenstalk.com/money-myths-that-keep-you-in-debt/)
+- [financial moves for stay-at-home parent](https://money.allwomenstalk.com/financial-moves-before-becoming-a-stay-at-home-parent/)
+- [financial advice for new graduates](https://money.allwomenstalk.com/savvy-and-simple-financial-tips-for-new-graduates/)
 - [7 Sure Ways to save Money ...](https://allwomenstalk.com/7-sure-ways-to-save-money/)
 - [7 Steps to Improve Your Finances ...](https://allwomenstalk.com/7-steps-to-improve-your-finances/)
 

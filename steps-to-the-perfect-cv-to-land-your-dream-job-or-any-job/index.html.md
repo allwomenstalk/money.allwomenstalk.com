@@ -52,16 +52,16 @@ I hope these tips help you write the perfect CV to land your dream job. Has anyo
 
 ## Related Posts
 
-- [questions to ask yourself before quitting your job](https://money.allwomenstalk.com/questions-to-ask-yourself-before-you-quit-your-job/)
-- [7 Things You Should Negotiate Other than Salary .....](https://money.allwomenstalk.com/things-you-should-negotiate-other-than-salary/)
-- [fired for lying on resume](https://money.allwomenstalk.com/lies-in-your-resume-that-will-get-you-fired/)
-- [7 Ways to Make the Most of a Pay Raise ...](https://money.allwomenstalk.com/ways-to-make-the-most-of-a-pay-raise/)
 - [7 Job Search Mistakes to Avoid at All Cost ...](https://money.allwomenstalk.com/job-search-mistakes-to-avoid-like-the-plague/)
 - [9 Ways to Enhance Your Resume and Cover Letter and...](https://money.allwomenstalk.com/ways-to-enhance-your-resume-and-cover-letter-and-land-your-dream-job/)
 - [7 Absolute Essentials to Keep at Your Office Job ....](https://lifestyle.allwomenstalk.com/absolute-essentials-to-keep-at-your-office-job/)
 - [best luxury sedans 2013](https://lifestyle.allwomenstalk.com/luxury-cars-of-to-complement-your-new-job/)
-- [steps to becoming a freelance writer](https://lifestyle.allwomenstalk.com/simple-steps-to-becoming-a-freelance-writer-to-start-today/)
 - [7 Smart Ways to Negotiate More Flexibility at Work...](https://money.allwomenstalk.com/smart-ways-to-negotiate-more-flexibility-at-work/)
+- [questions to ask yourself before quitting your job](https://money.allwomenstalk.com/questions-to-ask-yourself-before-you-quit-your-job/)
+- [7 Things You Should Negotiate Other than Salary .....](https://money.allwomenstalk.com/things-you-should-negotiate-other-than-salary/)
+- [7 Ways to Make the Most of a Pay Raise ...](https://money.allwomenstalk.com/ways-to-make-the-most-of-a-pay-raise/)
+- [steps to becoming a freelance writer](https://lifestyle.allwomenstalk.com/simple-steps-to-becoming-a-freelance-writer-to-start-today/)
+- [fired for lying on resume](https://money.allwomenstalk.com/lies-in-your-resume-that-will-get-you-fired/)
 - [7 Tips on Applying for a Job ...](https://parenting.allwomenstalk.com/7-tips-on-applying-for-a-job/)
 - [7 Tips on How to Write a Job-Winning CV ...](https://money.allwomenstalk.com/tips-on-how-to-write-a-job-winning-cv/)
 

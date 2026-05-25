@@ -42,16 +42,16 @@ Your credit score is something that will follow you through life, for better and
 
 ## Related Posts
 
-- [7 Common Money Fears and How to Tackle Them ...](https://money.allwomenstalk.com/common-money-fears-and-how-to-tackle-them/)
-- [simple saving savvy](https://money.allwomenstalk.com/simple-and-savvy-financial-habits/)
-- [8 Tips to Help You Pay off Your Debt ...](https://money.allwomenstalk.com/tips-to-help-you-pay-off-your-debt/)
-- [alternative ways to earn money](https://money.allwomenstalk.com/alternative-ways-to-make-money/)
-- [7 Smart Things to do with Your Tax Refund ...](https://money.allwomenstalk.com/smart-things-to-do-with-your-tax-refund/)
-- [7 Steps to Financial Fitness in 2013 ...](https://money.allwomenstalk.com/steps-to-financial-fitness-in/)
 - [7 Tips to Help Beloved Seniors with Finances ...](https://money.allwomenstalk.com/tips-to-help-beloved-seniors-with-finances/)
 - [how to lend money to others smart](https://money.allwomenstalk.com/tips-for-smart-borrowing/)
 - [8 Financial Resolutions You Should Make in 2013 .....](https://money.allwomenstalk.com/financial-resolutions-you-should-make-in/)
+- [7 Common Money Fears and How to Tackle Them ...](https://money.allwomenstalk.com/common-money-fears-and-how-to-tackle-them/)
+- [7 Steps to Financial Fitness in 2013 ...](https://money.allwomenstalk.com/steps-to-financial-fitness-in/)
+- [alternative ways to earn money](https://money.allwomenstalk.com/alternative-ways-to-make-money/)
 - [7 Bad Money Habits to Break in 2013 ...](https://money.allwomenstalk.com/bad-money-habits-to-break-in/)
+- [8 Tips to Help You Pay off Your Debt ...](https://money.allwomenstalk.com/tips-to-help-you-pay-off-your-debt/)
+- [simple saving savvy](https://money.allwomenstalk.com/simple-and-savvy-financial-habits/)
+- [7 Smart Things to do with Your Tax Refund ...](https://money.allwomenstalk.com/smart-things-to-do-with-your-tax-refund/)
 - [7 Common Myths about People with Money ...](https://money.allwomenstalk.com/common-myths-about-people-with-money/)
 - [7 of the Most Basic Financial Mistakes ...](https://money.allwomenstalk.com/of-the-most-basic-financial-mistakes/)
 

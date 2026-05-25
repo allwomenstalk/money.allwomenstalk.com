@@ -60,16 +60,16 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
-- [bad facebook posts](https://lifestyle.allwomenstalk.com/things-to-avoid-on-facebook/)
-- [things flight attendants hate](https://travel.allwomenstalk.com/things-that-piss-off-your-flight-attendant/)
 - [do guys wear maxi pads](https://health.allwomenstalk.com/reasons-why-you-should-never-wear-maxi-pads-again/)
+- [what is casual sexism](https://lifestyle.allwomenstalk.com/examples-of-casual-sexism-you-should-know-about/)
 - [social habit](https://lifestyle.allwomenstalk.com/social-habits-you-should-break/)
 - [stuff to buy at the grocery store](https://lifestyle.allwomenstalk.com/things-you-should-never-buy-at-the-grocery-store/)
-- [what should you not tell your coworkers](https://lifestyle.allwomenstalk.com/things-never-to-say-to-your-co-workers/)
-- [bad habits that start with m](https://lifestyle.allwomenstalk.com/bad-habits-to-stop-before-they-start/)
+- [bad facebook posts](https://lifestyle.allwomenstalk.com/things-to-avoid-on-facebook/)
+- [things flight attendants hate](https://travel.allwomenstalk.com/things-that-piss-off-your-flight-attendant/)
 - [missy dyes her hair](https://hair.allwomenstalk.com/hair-faux-pas-you-shouldnt-allow-yourself-to-do/)
-- [what is casual sexism](https://lifestyle.allwomenstalk.com/examples-of-casual-sexism-you-should-know-about/)
 - [old wives tale warts](https://lifestyle.allwomenstalk.com/old-wives-tales-you-dont-want-to-be-taking-seriously/)
+- [bad habits that start with m](https://lifestyle.allwomenstalk.com/bad-habits-to-stop-before-they-start/)
+- [what should you not tell your coworkers](https://lifestyle.allwomenstalk.com/things-never-to-say-to-your-co-workers/)
 - [8 Places Not to Use Your Debit Card in ...](https://allwomenstalk.com/8-places-not-to-use-your-debit-card/)
 - [8 Things to Keep in Your Wallet ...](https://allwomenstalk.com/8-things-to-keep-in-your-wallet/)
 

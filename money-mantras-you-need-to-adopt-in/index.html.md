@@ -44,16 +44,16 @@ If last year was a bad year financially, January is the opportunity for a fresh 
 
 ## Related Posts
 
-- [credit knowledge experts](https://money.allwomenstalk.com/clueless-about-credit-tips-to-boost-your-knowledge/)
-- [maxed out credit card outfit](https://money.allwomenstalk.com/types-of-people-who-should-avoid-credit-cards/)
-- [spending personality](https://money.allwomenstalk.com/things-your-credit-card-says-about-your-spending-personality/)
-- [why credit matters](https://money.allwomenstalk.com/situations-when-your-credit-matters-the-most/)
 - [once you know how to ____________ money your money...](https://money.allwomenstalk.com/ways-to-stop-letting-money-control-your-life/)
-- [fix inherit amazing](https://money.allwomenstalk.com/ways-to-improve-your-life-when-you-inherit-money/)
-- [why debt is bad](https://money.allwomenstalk.com/reasons-why-debt-is-bad-for-you/)
-- [how to get your credit to 800](https://money.allwomenstalk.com/of-the-best-ways-to-achieve-an-800-credit-score/)
+- [why credit matters](https://money.allwomenstalk.com/situations-when-your-credit-matters-the-most/)
+- [spending personality](https://money.allwomenstalk.com/things-your-credit-card-says-about-your-spending-personality/)
 - [how to live on half your income](https://money.allwomenstalk.com/single-here-are-ways-to-live-off-half-your-income/)
+- [why debt is bad](https://money.allwomenstalk.com/reasons-why-debt-is-bad-for-you/)
+- [maxed out credit card outfit](https://money.allwomenstalk.com/types-of-people-who-should-avoid-credit-cards/)
+- [credit knowledge experts](https://money.allwomenstalk.com/clueless-about-credit-tips-to-boost-your-knowledge/)
 - [metal money boxes](https://money.allwomenstalk.com/money-boxes-to-keep-your-pennies-safe/)
+- [fix inherit amazing](https://money.allwomenstalk.com/ways-to-improve-your-life-when-you-inherit-money/)
+- [how to get your credit to 800](https://money.allwomenstalk.com/of-the-best-ways-to-achieve-an-800-credit-score/)
 - [18 Positive Affirmations to Change Your Life ...](https://health.allwomenstalk.com/positive-affirmations-to-change-your-life/)
 - [Effortless Tricks to Get the Better Life You Deser...](https://inspiration.allwomenstalk.com/tricks-on-how-to-have-a-better-life/)
 

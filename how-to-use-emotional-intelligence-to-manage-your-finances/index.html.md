@@ -46,15 +46,15 @@ We all have dreams. Sometimes we know they will never come true. Other times the
 
 ## Related Posts
 
-- [building your savings](https://money.allwomenstalk.com/steps-to-build-your-savings/)
 - [gillian perkins](https://money.allwomenstalk.com/ways-gillian-perkins-actually-makes-money-from-home/)
-- [ways to pay for college without financial aid](https://money.allwomenstalk.com/ways-to-pay-for-college-without-a-loan/)
 - [investment options for women](https://money.allwomenstalk.com/best-investment-options-for-women/)
+- [building your savings](https://money.allwomenstalk.com/steps-to-build-your-savings/)
 - [help paying off debt](https://money.allwomenstalk.com/need-help-paying-off-debt-on-a-low-income-check-this-out/)
+- [financial basics everyone should know](https://money.allwomenstalk.com/basics-of-finance-everyone-should-know/)
 - [How to Deal with a Partner Who is Useless with Mon...](https://money.allwomenstalk.com/how-to-deal-with-a-partner-who-is-useless-with-money/)
+- [ways to pay for college without financial aid](https://money.allwomenstalk.com/ways-to-pay-for-college-without-a-loan/)
 - [small mistakes big consequences](https://money.allwomenstalk.com/small-financial-mistakes-with-big-consequences/)
 - [how to protect your identity on social media](https://apps.allwomenstalk.com/easy-ways-to-protect-yourself-from-identity-theft/)
-- [financial basics everyone should know](https://money.allwomenstalk.com/basics-of-finance-everyone-should-know/)
 - [non mlm side hustles](https://money.allwomenstalk.com/side-hustles-to-make-money/)
 - [Efficient Ways to Increase Your Emotional Intellig...](https://inspiration.allwomenstalk.com/very-efficient-ways-to-raise-your-emotional-intelligence/)
 - [Top Tips for Changing Your Money Mindset ...](https://money.allwomenstalk.com/simple-ways-to-change-your-mindset-about-money/)

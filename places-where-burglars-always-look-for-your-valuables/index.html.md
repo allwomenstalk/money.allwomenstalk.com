@@ -50,16 +50,16 @@ Burglars are sneaky, dangerous criminals who take advantage of people who arenâ€
 
 ## Related Posts
 
-- [benefits of a tiny house](https://lifestyle.allwomenstalk.com/the-benefits-of-living-in-a-tiny-house/)
-- [roommate pays all the bills](https://money.allwomenstalk.com/how-to-manage-your-bills-with-a-roommate/)
-- [https www.hercampus.comlife7-common-roommate-probl...](https://lifestyle.allwomenstalk.com/perfect-solutions-to-common-roommate-problems/)
 - [pros of living alone](https://lifestyle.allwomenstalk.com/amazing-perks-of-living-alone/)
+- [funny smell in house](https://allwomenstalk.com/why-your-house-can-smell-funny-and-how-to-deal-with-it/)
+- [benefits of a tiny house](https://lifestyle.allwomenstalk.com/the-benefits-of-living-in-a-tiny-house/)
+- [start moving company](https://allwomenstalk.com/guide-for-starting-moving-company/)
+- [dy plumbing](https://lifestyle.allwomenstalk.com/common-plumbing-problems-when-to-diy-and-when-to-call-a-plumber/)
+- [roommate pays all the bills](https://money.allwomenstalk.com/how-to-manage-your-bills-with-a-roommate/)
+- [finding a roommate in los angeles](https://lifestyle.allwomenstalk.com/most-popular-websites-to-find-a-roommate/)
+- [https www.hercampus.comlife7-common-roommate-probl...](https://lifestyle.allwomenstalk.com/perfect-solutions-to-common-roommate-problems/)
 - [how to get rid of a bad roommate](https://lifestyle.allwomenstalk.com/how-to-get-rid-of-an-unwanted-housemate/)
 - [public liability insurance handyman](https://money.allwomenstalk.com/this-is-why-the-handyman-in-your-family-definitely-needs-handyman-insurance/)
-- [dy plumbing](https://lifestyle.allwomenstalk.com/common-plumbing-problems-when-to-diy-and-when-to-call-a-plumber/)
-- [funny smell in house](https://allwomenstalk.com/why-your-house-can-smell-funny-and-how-to-deal-with-it/)
-- [start moving company](https://allwomenstalk.com/guide-for-starting-moving-company/)
-- [finding a roommate in los angeles](https://lifestyle.allwomenstalk.com/most-popular-websites-to-find-a-roommate/)
 - [8 Fabulous Tips for Successful Vintage Shopping .....](https://fashion.allwomenstalk.com/tips-for-vintage-shopping/)
 - [10 Places to Decorate on a Budget ...](https://allwomenstalk.com/10-places-to-decorate-on-a-budget/)
 

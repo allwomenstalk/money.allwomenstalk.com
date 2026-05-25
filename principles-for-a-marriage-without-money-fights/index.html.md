@@ -43,15 +43,15 @@ Marriage is hard enough, and fighting about money is the last thing you need. Ge
 ## Related Posts
 
 - [online dating pro](https://love.allwomenstalk.com/pros-and-cons-of-online-dating/)
-- [i am bored in my relationship](https://love.allwomenstalk.com/things-to-do-when-you-are-bored-in-your-relationship/)
 - [romantic relationship skills](https://love.allwomenstalk.com/romantic-skills-you-should-learn/)
-- [together again meaning](https://love.allwomenstalk.com/things-to-do-that-will-bring-you-closer-together/)
-- [relationship lesson](https://love.allwomenstalk.com/relationship-lessons-from-happy-couples/)
-- [obstacles in a relationship](https://love.allwomenstalk.com/dating-obstacles-and-how-you-can-overcome-them/)
-- [how to trust your partner in long distance relatio...](https://love.allwomenstalk.com/tips-on-how-to-build-trust-when-youre-in-a-long-distance-relationship/)
 - [questions to ask before committing to a relationsh...](https://love.allwomenstalk.com/questions-to-ask-before-committing-to-a-relationship/)
+- [how to trust your partner in long distance relatio...](https://love.allwomenstalk.com/tips-on-how-to-build-trust-when-youre-in-a-long-distance-relationship/)
+- [together again meaning](https://love.allwomenstalk.com/things-to-do-that-will-bring-you-closer-together/)
+- [obstacles in a relationship](https://love.allwomenstalk.com/dating-obstacles-and-how-you-can-overcome-them/)
+- [relationship lesson](https://love.allwomenstalk.com/relationship-lessons-from-happy-couples/)
 - [where to find a partner](https://love.allwomenstalk.com/places-to-meet-your-potential-partner/)
 - [how to deal with falling out of love](https://love.allwomenstalk.com/steps-to-falling-out-of-love/)
+- [i am bored in my relationship](https://love.allwomenstalk.com/things-to-do-when-you-are-bored-in-your-relationship/)
 - [7 Ingredients for a Happy Marriage ...](https://love.allwomenstalk.com/ingredients-for-a-happy-marriage/)
 - [5 Easy Ways to Win the Marital Money Wars](https://allwomenstalk.com/5-easy-ways-to-win-the-marital-money-wars/)
 

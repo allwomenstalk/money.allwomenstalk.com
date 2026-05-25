@@ -47,14 +47,14 @@ Sources:
 ## Related Posts
 
 - [too long clothes](https://funny.allwomenstalk.com/nothing-to-wear-signs-you-wait-too-long-to-do-laundry/)
-- [7 signs of a confident woman](https://lifestyle.allwomenstalk.com/signs-you-are-over-all-the-insecurities-you-had-in-high-school/)
+- [Watch Yourself - 7 Signs Youre about to Make a Ter...](https://money.allwomenstalk.com/watch-yourself-signs-youre-about-to-make-a-terrible-decision/)
 - [11 Signs Your Self-Esteem Needs Boosting ...](https://inspiration.allwomenstalk.com/signs-your-self-esteem-needs-boosting/)
+- [7 Signs You Often Say Yes when You Really Want to ...](https://inspiration.allwomenstalk.com/signs-you-often-say-yes-when-you-really-want-to-say-no/)
+- [7 signs of a confident woman](https://lifestyle.allwomenstalk.com/signs-you-are-over-all-the-insecurities-you-had-in-high-school/)
 - [7 Signs You Need to Change Your Way of Thinking .....](https://inspiration.allwomenstalk.com/signs-you-need-to-change-your-way-of-thinking/)
 - [signs your birth control isnt working](https://health.allwomenstalk.com/signs-your-birth-control-pill-is-not-the-right-one/)
-- [8 Things Your Intuition Might Be Trying to Tell Yo...](https://inspiration.allwomenstalk.com/things-your-intuition-might-be-trying-to-tell-you/)
-- [7 Signs You Often Say Yes when You Really Want to ...](https://inspiration.allwomenstalk.com/signs-you-often-say-yes-when-you-really-want-to-say-no/)
-- [Watch Yourself - 7 Signs Youre about to Make a Ter...](https://money.allwomenstalk.com/watch-yourself-signs-youre-about-to-make-a-terrible-decision/)
 - [7 Telling Signs Youre Not Taking Proper Care of Yo...](https://health.allwomenstalk.com/telling-signs-youre-not-taking-proper-care-of-yourself/)
+- [8 Things Your Intuition Might Be Trying to Tell Yo...](https://inspiration.allwomenstalk.com/things-your-intuition-might-be-trying-to-tell-you/)
 - [7 Signs You Have a Problem of Emotional Spending ....](https://money.allwomenstalk.com/signs-you-have-a-problem-of-emotional-spending/)
 - [7 Good Reasons to Change Careers ...](https://money.allwomenstalk.com/good-reasons-to-change-careers/)
 - [8 Reasons to Quit Your Job ...](https://allwomenstalk.com/8-reasons-to-quit-your-job/)

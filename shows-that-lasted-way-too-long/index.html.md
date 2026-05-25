@@ -74,15 +74,15 @@ I’m sure there are a few shows on this list that will get people mad at me. Ex
 
 ## Related Posts
 
-- [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
-- [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
-- [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
+- [top 10 worst series finales](https://movies.allwomenstalk.com/worst-tv-series-finales-that-should-be-changed/)
+- [videos of funny pranks](https://lifestyle.allwomenstalk.com/funny-youtube-pranks-thatll-surely-make-you-smile/)
+- [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
 - [felicia day chris hardwick](https://lifestyle.allwomenstalk.com/great-youtube-shows/)
 - [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
+- [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
 - [regular show acid trip episode](https://movies.allwomenstalk.com/kids-cartoons-that-adults-watch-too/)
-- [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
-- [videos of funny pranks](https://lifestyle.allwomenstalk.com/funny-youtube-pranks-thatll-surely-make-you-smile/)
-- [top 10 worst series finales](https://movies.allwomenstalk.com/worst-tv-series-finales-that-should-be-changed/)
+- [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
+- [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
 - [taken miniseries streaming](https://movies.allwomenstalk.com/completed-tv-series-to-stream-instantly-on-netflix/)
 - [7 Interesting Reality TV Shows ...](https://allwomenstalk.com/7-interesting-reality-tv-shows/)
 - [8 Worst Reality Shows ...](https://allwomenstalk.com/8-worst-reality-shows/)

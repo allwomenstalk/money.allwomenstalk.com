@@ -40,16 +40,16 @@ These are less expensive than traditional colleges, but there is no doubting tha
 
 ## Related Posts
 
-- [help paying off debt](https://money.allwomenstalk.com/need-help-paying-off-debt-on-a-low-income-check-this-out/)
-- [out-of-pocket expenses](https://health.allwomenstalk.com/what-do-out-of-pocket-expenses-mean/)
-- [small mistakes big consequences](https://money.allwomenstalk.com/small-financial-mistakes-with-big-consequences/)
-- [think of 3 important decisions you will make that ...](https://money.allwomenstalk.com/the-most-important-financial-decisions-you-will-make-in-your-life/)
-- [financial basics everyone should know](https://money.allwomenstalk.com/basics-of-finance-everyone-should-know/)
-- [gillian perkins](https://money.allwomenstalk.com/ways-gillian-perkins-actually-makes-money-from-home/)
-- [paid surveys for women](https://money.allwomenstalk.com/try-these-paid-surveys-to-make-some-extra-cash/)
-- [advice from billionaires](https://money.allwomenstalk.com/advice-to-graduates-from-billionaires/)
 - [personal finance for college students](https://money.allwomenstalk.com/useful-personal-finance-lessons-for-college-students/)
+- [paid surveys for women](https://money.allwomenstalk.com/try-these-paid-surveys-to-make-some-extra-cash/)
+- [help paying off debt](https://money.allwomenstalk.com/need-help-paying-off-debt-on-a-low-income-check-this-out/)
+- [financial basics everyone should know](https://money.allwomenstalk.com/basics-of-finance-everyone-should-know/)
+- [think of 3 important decisions you will make that ...](https://money.allwomenstalk.com/the-most-important-financial-decisions-you-will-make-in-your-life/)
+- [out-of-pocket expenses](https://health.allwomenstalk.com/what-do-out-of-pocket-expenses-mean/)
 - [investment options for women](https://money.allwomenstalk.com/best-investment-options-for-women/)
+- [small mistakes big consequences](https://money.allwomenstalk.com/small-financial-mistakes-with-big-consequences/)
+- [advice from billionaires](https://money.allwomenstalk.com/advice-to-graduates-from-billionaires/)
+- [gillian perkins](https://money.allwomenstalk.com/ways-gillian-perkins-actually-makes-money-from-home/)
 - [7 Ways to Cut the Cost of College ...](https://money.allwomenstalk.com/ways-to-cut-the-cost-of-college/)
 - [7 Ways to Be Smart when Borrowing Money for Colleg...](https://money.allwomenstalk.com/ways-to-be-smart-when-borrowing-money-for-college/)
 

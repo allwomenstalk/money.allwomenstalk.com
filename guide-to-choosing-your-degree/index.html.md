@@ -31,16 +31,16 @@ Make decisions that bring you happiness.
 
 ## Related Posts
 
-- [10 Things to Always Consider  when Youre Applying ...](https://lifestyle.allwomenstalk.com/things-to-consider-when-applying-for-college/)
-- [how to make money in grad school](https://money.allwomenstalk.com/ways-to-earn-money-in-grad-school/)
-- [How to Choose  the Best College for You ...](https://teen.allwomenstalk.com/how-to-choose-the-best-college-for-you/)
 - [Awesome Tips for How to Avoid Getting a College Re...](https://teen.allwomenstalk.com/awesome-tips-for-how-to-avoid-getting-a-college-rejection/)
-- [The Best Tips Ever to Ace Exams ...](https://teen.allwomenstalk.com/best-tips-to-ace-exams/)
+- [10 Things to Always Consider  when Youre Applying ...](https://lifestyle.allwomenstalk.com/things-to-consider-when-applying-for-college/)
 - [Awesome Ways to Start Prepping for Exams Now ...](https://teen.allwomenstalk.com/ways-to-start-prepping-for-exams-now/)
+- [How to Choose  the Best College for You ...](https://teen.allwomenstalk.com/how-to-choose-the-best-college-for-you/)
+- [The Best Tips Ever to Ace Exams ...](https://teen.allwomenstalk.com/best-tips-to-ace-exams/)
+- [How to Manage Multiple College Deadlines ...](https://teen.allwomenstalk.com/how-to-manage-multiple-college-deadlines/)
+- [Pro Tips for Managing Anxiety at College ...](https://health.allwomenstalk.com/tips-for-managing-anxiety-at-college/)
+- [how to make money in grad school](https://money.allwomenstalk.com/ways-to-earn-money-in-grad-school/)
 - [Teenagers Guide on How to Survive High School ...](https://teen.allwomenstalk.com/how-to-survive-high-school/)
 - [things to do before graduating college](https://lifestyle.allwomenstalk.com/things-to-do-before-you-graduate-college-2/)
-- [Pro Tips for Managing Anxiety at College ...](https://health.allwomenstalk.com/tips-for-managing-anxiety-at-college/)
-- [How to Manage Multiple College Deadlines ...](https://teen.allwomenstalk.com/how-to-manage-multiple-college-deadlines/)
 - [The Benefits of Completing a University Degree ...](https://allwomenstalk.com/benefits-of-completing-university-degree/)
 - [9 Tips for Getting a Job in a Field You Dont Have ...](https://lifestyle.allwomenstalk.com/tips-for-getting-a-job-in-a-field-you-dont-have-a-degree-in/)
 

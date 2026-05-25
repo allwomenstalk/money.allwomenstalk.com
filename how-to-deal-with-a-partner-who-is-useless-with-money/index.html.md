@@ -40,16 +40,16 @@ You might want to consider setting up a separate bank account that is specifical
 
 ## Related Posts
 
-- [ways to pay for college without financial aid](https://money.allwomenstalk.com/ways-to-pay-for-college-without-a-loan/)
-- [non mlm side hustles](https://money.allwomenstalk.com/side-hustles-to-make-money/)
 - [gillian perkins](https://money.allwomenstalk.com/ways-gillian-perkins-actually-makes-money-from-home/)
-- [financial basics everyone should know](https://money.allwomenstalk.com/basics-of-finance-everyone-should-know/)
 - [investment options for women](https://money.allwomenstalk.com/best-investment-options-for-women/)
-- [how to protect your identity on social media](https://apps.allwomenstalk.com/easy-ways-to-protect-yourself-from-identity-theft/)
+- [advice from billionaires](https://money.allwomenstalk.com/advice-to-graduates-from-billionaires/)
+- [ways to pay for college without financial aid](https://money.allwomenstalk.com/ways-to-pay-for-college-without-a-loan/)
 - [small mistakes big consequences](https://money.allwomenstalk.com/small-financial-mistakes-with-big-consequences/)
 - [help paying off debt](https://money.allwomenstalk.com/need-help-paying-off-debt-on-a-low-income-check-this-out/)
+- [non mlm side hustles](https://money.allwomenstalk.com/side-hustles-to-make-money/)
+- [how to protect your identity on social media](https://apps.allwomenstalk.com/easy-ways-to-protect-yourself-from-identity-theft/)
+- [financial basics everyone should know](https://money.allwomenstalk.com/basics-of-finance-everyone-should-know/)
 - [think of 3 important decisions you will make that ...](https://money.allwomenstalk.com/the-most-important-financial-decisions-you-will-make-in-your-life/)
-- [advice from billionaires](https://money.allwomenstalk.com/advice-to-graduates-from-billionaires/)
 - [7 Tips on Dealing with Money Issues in a Relations...](https://allwomenstalk.com/7-tips-on-dealing-with-money-issues-in-a-relationship/)
 - [7 Ways to Stop Fighting about Money ...](https://allwomenstalk.com/ways-to-stop-fighting-about-money/)
 

@@ -42,15 +42,15 @@ Getting a check from the federal government can make your day and you might thin
 
 ## Related Posts
 
-- [8 Ways to Spring Clean Your Finances ...](https://money.allwomenstalk.com/ways-to-spring-clean-your-finances/)
-- [7 Steps to Financial Fitness in 2013 ...](https://money.allwomenstalk.com/steps-to-financial-fitness-in/)
-- [7 Bad Money Habits to Break in 2013 ...](https://money.allwomenstalk.com/bad-money-habits-to-break-in/)
+- [7 Common Money Fears and How to Tackle Them ...](https://money.allwomenstalk.com/common-money-fears-and-how-to-tackle-them/)
+- [9 Advantages of Using Prepaid Cards to Manage Fina...](https://money.allwomenstalk.com/advantages-of-using-prepaid-cards-to-manage-finances/)
 - [7 Ways to Increase Your Income in 2013 ...](https://money.allwomenstalk.com/ways-to-increase-your-income-in/)
 - [money problems in marriage](https://money.allwomenstalk.com/ways-to-avoid-money-problems-in-marriage/)
-- [7 Ways to Increase Your Income This Year ...](https://money.allwomenstalk.com/ways-to-increase-your-income-this-year/)
-- [9 Advantages of Using Prepaid Cards to Manage Fina...](https://money.allwomenstalk.com/advantages-of-using-prepaid-cards-to-manage-finances/)
+- [8 Ways to Spring Clean Your Finances ...](https://money.allwomenstalk.com/ways-to-spring-clean-your-finances/)
 - [8 Tips to Help You Pay off Your Debt ...](https://money.allwomenstalk.com/tips-to-help-you-pay-off-your-debt/)
-- [7 Common Money Fears and How to Tackle Them ...](https://money.allwomenstalk.com/common-money-fears-and-how-to-tackle-them/)
+- [7 Steps to Financial Fitness in 2013 ...](https://money.allwomenstalk.com/steps-to-financial-fitness-in/)
+- [7 Ways to Increase Your Income This Year ...](https://money.allwomenstalk.com/ways-to-increase-your-income-this-year/)
+- [7 Bad Money Habits to Break in 2013 ...](https://money.allwomenstalk.com/bad-money-habits-to-break-in/)
 - [impress mortgage](https://money.allwomenstalk.com/ways-to-impress-a-mortgage-lender/)
 - [7 Ways to save Money While Spending It ...](https://money.allwomenstalk.com/ways-to-save-money-while-spending-it/)
 - [7 Ways to Prep for Tax Time ...](https://money.allwomenstalk.com/ways-to-prep-for-tax-time/)

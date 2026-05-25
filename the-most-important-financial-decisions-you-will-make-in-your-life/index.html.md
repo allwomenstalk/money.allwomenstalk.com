@@ -42,16 +42,16 @@ Whether you like it or not, money is always going to be a big factor in your lif
 
 ## Related Posts
 
-- [paid surveys for women](https://money.allwomenstalk.com/try-these-paid-surveys-to-make-some-extra-cash/)
 - [personal finance for college students](https://money.allwomenstalk.com/useful-personal-finance-lessons-for-college-students/)
-- [WWYD: Stinginess Ends in Foolishness ...](https://allwomenstalk.com/wwyd-stinginess-ends-in-foolishness/)
-- [Empty Your Bank Account with Just Your Thumbs](https://allwomenstalk.com/empty-your-bank-account-with-just-your-thumbs/)
 - [non mortgage installment loan example](https://money.allwomenstalk.com/what-are-installment-loans/)
 - [advice from billionaires](https://money.allwomenstalk.com/advice-to-graduates-from-billionaires/)
-- [how much profit do dealerships make on used cars](https://allwomenstalk.com/what-is-the-dealer-markup-on-used-cars/)
-- [out-of-pocket expenses](https://health.allwomenstalk.com/what-do-out-of-pocket-expenses-mean/)
+- [WWYD: Stinginess Ends in Foolishness ...](https://allwomenstalk.com/wwyd-stinginess-ends-in-foolishness/)
 - [best investing options for beginners](https://allwomenstalk.com/best-investing-options-for-beginners/)
+- [out-of-pocket expenses](https://health.allwomenstalk.com/what-do-out-of-pocket-expenses-mean/)
+- [how much profit do dealerships make on used cars](https://allwomenstalk.com/what-is-the-dealer-markup-on-used-cars/)
 - [financial advice for familes](https://money.allwomenstalk.com/financial-planning-tips-for-families/)
+- [paid surveys for women](https://money.allwomenstalk.com/try-these-paid-surveys-to-make-some-extra-cash/)
+- [Empty Your Bank Account with Just Your Thumbs](https://allwomenstalk.com/empty-your-bank-account-with-just-your-thumbs/)
 - [9 Questions to Ask Yourself before Making a Major ...](https://inspiration.allwomenstalk.com/questions-to-ask-yourself-before-making-a-major-decision/)
 - [7 Good Things to Know about Making Important Life ...](https://inspiration.allwomenstalk.com/good-things-to-know-about-making-important-life-decisions/)
 

@@ -68,16 +68,16 @@ What do you always make sure to bring to work?
 
 ## Related Posts
 
-- [lazy girl gif](https://health.allwomenstalk.com/how-lazy-girls-can-keep-themselves-healthy/)
-- [act of deliciousness](https://funny.allwomenstalk.com/every-woman-will-understand-these-delicious-acts/)
-- [high heels broken](https://shoes.allwomenstalk.com/how-to-survive-when-your-heels-break/)
 - [big but](https://beauty.allwomenstalk.com/struggles-that-women-with-big-butts-deal-with/)
-- [short girl problems meme](https://funny.allwomenstalk.com/embarrassing-situations-every-short-woman-has-lived-through/)
-- [learn how to twerk for beginners](https://lifestyle.allwomenstalk.com/ladies-its-time-to-learn-how-to-twerk/)
-- [college girl do](https://lifestyle.allwomenstalk.com/every-college-girl-should-do-these-things-at-least-once/)
-- [when he calls you a strong woman](https://inspiration.allwomenstalk.com/bitchy-qualities-that-actually-make-you-a-strong-woman/)
-- [What Women Who Hate Working out Have to Deal with ...](https://funny.allwomenstalk.com/what-women-who-hate-working-out-have-to-deal-with/)
 - [what every woman should know](https://lifestyle.allwomenstalk.com/things-every-woman-should-know-in-case-of-an-emergency/)
+- [What Women Who Hate Working out Have to Deal with ...](https://funny.allwomenstalk.com/what-women-who-hate-working-out-have-to-deal-with/)
+- [when he calls you a strong woman](https://inspiration.allwomenstalk.com/bitchy-qualities-that-actually-make-you-a-strong-woman/)
+- [learn how to twerk for beginners](https://lifestyle.allwomenstalk.com/ladies-its-time-to-learn-how-to-twerk/)
+- [act of deliciousness](https://funny.allwomenstalk.com/every-woman-will-understand-these-delicious-acts/)
+- [lazy girl gif](https://health.allwomenstalk.com/how-lazy-girls-can-keep-themselves-healthy/)
+- [college girl do](https://lifestyle.allwomenstalk.com/every-college-girl-should-do-these-things-at-least-once/)
+- [short girl problems meme](https://funny.allwomenstalk.com/embarrassing-situations-every-short-woman-has-lived-through/)
+- [high heels broken](https://shoes.allwomenstalk.com/how-to-survive-when-your-heels-break/)
 - [8 Great Tips to Look Professional at Work ...](https://fashion.allwomenstalk.com/8-great-tips-to-look-professional-at-work/)
 - [10 Cute Things to Keep on Your Desk ...](https://allwomenstalk.com/10-cute-things-to-keep-on-your-desk/)
 

@@ -48,16 +48,16 @@ Top Photo Credit: [Images_of_Money](https://www.flickr.com/photos/59937401@N07/5
 
 ## Related Posts
 
-- [makeup questions and answers](https://makeup.allwomenstalk.com/7-questions-about-foundations/)
-- [how to describe eyes romantically](https://lifestyle.allwomenstalk.com/emotions-you-can-express-with-your-eyes/)
+- [apostrophe after z for possessive](https://lifestyle.allwomenstalk.com/dos-and-donts-of-life/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
 - [8 Things Ive Learned from Greys Anatomy ...](https://movies.allwomenstalk.com/things-ive-learned-from-greys-anatomy/)
-- [apostrophe after z for possessive](https://lifestyle.allwomenstalk.com/dos-and-donts-of-life/)
-- [8 Things Ive Learned from Gossip Girl ...](https://movies.allwomenstalk.com/things-ive-learned-from-gossip-girl/)
+- [makeup questions and answers](https://makeup.allwomenstalk.com/7-questions-about-foundations/)
 - [lessons that should be taught in school](https://lifestyle.allwomenstalk.com/life-lessons-they-should-teach-in-school/)
+- [8 Things Ive Learned from Gossip Girl ...](https://movies.allwomenstalk.com/things-ive-learned-from-gossip-girl/)
+- [how to describe eyes romantically](https://lifestyle.allwomenstalk.com/emotions-you-can-express-with-your-eyes/)
+- [loreal la maximalist eyeshadow primped previous](https://lifestyle.allwomenstalk.com/8-things-to-give-up-today/)
 - [7 Things Ive Learned from the Jersey Shore ...](https://movies.allwomenstalk.com/things-ive-learned-from-the-jersey-shore/)
 - [10 Times You Dont Need to Apologize ...](https://lifestyle.allwomenstalk.com/times-you-dont-need-to-apologize/)
-- [loreal la maximalist eyeshadow primped previous](https://lifestyle.allwomenstalk.com/8-things-to-give-up-today/)
 - [9 Tips for Surviving the Economic Crisis ...](https://money.allwomenstalk.com/tips-for-surviving-the-economic-crisis/)
 - [8 Tips for Taking Control of Your Life ...](https://lifestyle.allwomenstalk.com/tips-for-taking-control-of-your-life/)
 

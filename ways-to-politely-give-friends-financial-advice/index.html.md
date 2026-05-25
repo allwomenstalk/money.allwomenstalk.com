@@ -43,15 +43,15 @@ Understandably, it's hard to sit back and watch your friends make unwise financi
 ## Related Posts
 
 - [how to be financially independent in college](https://money.allwomenstalk.com/ways-to-achieve-financial-independence-after-graduating-college/)
+- [why have a student bank account](https://teen.allwomenstalk.com/reasons-why-you-need-to-open-a-student-bank-account/)
+- [collecting money in the workplace](https://money.allwomenstalk.com/hints-for-how-to-avoid-money-collections-at-work/)
+- [how to avoid bad credit](https://money.allwomenstalk.com/dos-and-donts-when-you-have-poor-credit/)
 - [freeloading friend](https://money.allwomenstalk.com/best-ways-to-deal-with-a-moocher/)
 - [maximizing credit card rewards](https://money.allwomenstalk.com/simple-ways-to-maximize-credit-card-rewards/)
 - [what can i buy with credit](https://money.allwomenstalk.com/purchases-you-should-always-make-with-a-credit-card/)
 - [best paying jobs for teens](https://money.allwomenstalk.com/ways-to-make-money-if-youre-too-young-for-a-job/)
-- [collecting money in the workplace](https://money.allwomenstalk.com/hints-for-how-to-avoid-money-collections-at-work/)
-- [how to avoid bad credit](https://money.allwomenstalk.com/dos-and-donts-when-you-have-poor-credit/)
 - [ask to borrow money](https://money.allwomenstalk.com/questions-to-ask-before-lending-your-friends-money/)
 - [how does a young person get a credit card](https://money.allwomenstalk.com/reasons-why-youre-too-young-for-a-credit-card/)
-- [why have a student bank account](https://teen.allwomenstalk.com/reasons-why-you-need-to-open-a-student-bank-account/)
 - [7 Steps to Improve Your Finances ...](https://allwomenstalk.com/7-steps-to-improve-your-finances/)
 - [7 Tips for Budgeting Your Finances ...](https://allwomenstalk.com/7-tips-for-budgeting-your-finances/)
 

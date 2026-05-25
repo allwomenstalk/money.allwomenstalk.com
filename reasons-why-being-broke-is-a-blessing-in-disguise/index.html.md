@@ -42,16 +42,16 @@ Being broke may sound like a bad thing - and yes, most of us wouldn't mind earni
 
 ## Related Posts
 
-- [house money pit](https://money.allwomenstalk.com/ways-to-cope-with-a-money-pit/)
-- [friends money manager](https://money.allwomenstalk.com/ways-to-politely-give-friends-financial-advice/)
-- [why have a student bank account](https://teen.allwomenstalk.com/reasons-why-you-need-to-open-a-student-bank-account/)
-- [does having a job build credit](https://money.allwomenstalk.com/ways-to-build-credit-when-you-work-as-a-freelancer/)
-- [cope or drop](https://money.allwomenstalk.com/ways-to-cope-with-a-drop-in-income/)
-- [how to be financially independent in college](https://money.allwomenstalk.com/ways-to-achieve-financial-independence-after-graduating-college/)
-- [best paying jobs for teens](https://money.allwomenstalk.com/ways-to-make-money-if-youre-too-young-for-a-job/)
-- [how does a young person get a credit card](https://money.allwomenstalk.com/reasons-why-youre-too-young-for-a-credit-card/)
 - [how to avoid bad credit](https://money.allwomenstalk.com/dos-and-donts-when-you-have-poor-credit/)
+- [does having a job build credit](https://money.allwomenstalk.com/ways-to-build-credit-when-you-work-as-a-freelancer/)
+- [house money pit](https://money.allwomenstalk.com/ways-to-cope-with-a-money-pit/)
+- [how does a young person get a credit card](https://money.allwomenstalk.com/reasons-why-youre-too-young-for-a-credit-card/)
+- [why have a student bank account](https://teen.allwomenstalk.com/reasons-why-you-need-to-open-a-student-bank-account/)
+- [best paying jobs for teens](https://money.allwomenstalk.com/ways-to-make-money-if-youre-too-young-for-a-job/)
+- [cope or drop](https://money.allwomenstalk.com/ways-to-cope-with-a-drop-in-income/)
+- [friends money manager](https://money.allwomenstalk.com/ways-to-politely-give-friends-financial-advice/)
 - [ask to borrow money](https://money.allwomenstalk.com/questions-to-ask-before-lending-your-friends-money/)
+- [how to be financially independent in college](https://money.allwomenstalk.com/ways-to-achieve-financial-independence-after-graduating-college/)
 - [6 Reasons Why Your Money Just Disappears ...](https://allwomenstalk.com/6-reasons-why-your-money-just-disappears/)
 - [10 Reasons Why I Dont Have Money ...](https://money.allwomenstalk.com/reasons-why-i-dont-have-money/)
 

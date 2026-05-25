@@ -42,16 +42,16 @@ These’re 7 habits of frugal women that you can learn from. Which ones do you p
 
 ## Related Posts
 
-- [bringing your own nail polish to salon](https://nails.allwomenstalk.com/how-to-save-money-at-the-nail-salon/)
-- [semiannual sale](https://money.allwomenstalk.com/annual-sales-to-start-saving-up-for/)
-- [saving money infographic](https://money.allwomenstalk.com/infographics-thatll-save-you-tons-of-money/)
-- [online shopping save money](https://money.allwomenstalk.com/ways-to-save-money-for-girls-who-love-online-shopping/)
 - [grocery list for young adults](https://teen.allwomenstalk.com/real-world-101-how-to-grocery-shop-like-an-adult/)
 - [examples of time savers](https://lifestyle.allwomenstalk.com/simple-time-savers-to-help-you-save-your-day/)
-- [light gains make a heavy purse](https://bags.allwomenstalk.com/steps-to-lightening-up-your-heavy-purse/)
-- [salon saving](https://hair.allwomenstalk.com/how-to-save-money-at-the-hair-salon/)
 - [sephora points system](https://beauty.allwomenstalk.com/use-these-money-saving-hacks-when-you-shop-at-sephora/)
+- [semiannual sale](https://money.allwomenstalk.com/annual-sales-to-start-saving-up-for/)
+- [salon saving](https://hair.allwomenstalk.com/how-to-save-money-at-the-hair-salon/)
+- [light gains make a heavy purse](https://bags.allwomenstalk.com/steps-to-lightening-up-your-heavy-purse/)
+- [saving money infographic](https://money.allwomenstalk.com/infographics-thatll-save-you-tons-of-money/)
+- [bringing your own nail polish to salon](https://nails.allwomenstalk.com/how-to-save-money-at-the-nail-salon/)
 - [she is a smart girl](https://money.allwomenstalk.com/things-every-smart-girl-does-when-shopping-in-the-sales/)
+- [online shopping save money](https://money.allwomenstalk.com/ways-to-save-money-for-girls-who-love-online-shopping/)
 - [10 More Eminently Sensible Ways to save Money by B...](https://money.allwomenstalk.com/more-eminently-sensible-ways-to-save-money-by-being-frugal/)
 - [9 Simple and Savvy Financial Habits ...](https://money.allwomenstalk.com/simple-and-savvy-financial-habits/)
 

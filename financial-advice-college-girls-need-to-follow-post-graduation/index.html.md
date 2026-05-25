@@ -50,16 +50,16 @@ What was your favorite piece of advice for achieving financial freedom post grad
 
 ## Related Posts
 
-- [how to get back into study mode](https://lifestyle.allwomenstalk.com/tips-to-prepare-for-school/)
-- [interesting articles for college students](https://lifestyle.allwomenstalk.com/tips-for-girls-starting-college/)
-- [best life hacks for students](https://lifestyle.allwomenstalk.com/college-life-hacks/)
 - [what is freshers flu](https://health.allwomenstalk.com/ways-to-avoid-freshers-flu/)
-- [college student working](https://lifestyle.allwomenstalk.com/the-reality-of-balancing-study-and-a-job-at-college/)
-- [things to do before going back to college](https://lifestyle.allwomenstalk.com/things-to-do-before-going-back-to-college/)
-- [freshmans nerve](https://teen.allwomenstalk.com/tips-to-survive-high-school/)
 - [business essay writing tips](https://lifestyle.allwomenstalk.com/how-to-write-a-business-essay/)
-- [dress tips to stand out](https://teen.allwomenstalk.com/ways-to-stand-out-on-the-first-day-of-school/)
 - [hottest college majors](https://lifestyle.allwomenstalk.com/ways-to-get-the-most-out-of-college/)
+- [things to do before going back to college](https://lifestyle.allwomenstalk.com/things-to-do-before-going-back-to-college/)
+- [best life hacks for students](https://lifestyle.allwomenstalk.com/college-life-hacks/)
+- [college student working](https://lifestyle.allwomenstalk.com/the-reality-of-balancing-study-and-a-job-at-college/)
+- [dress tips to stand out](https://teen.allwomenstalk.com/ways-to-stand-out-on-the-first-day-of-school/)
+- [how to get back into study mode](https://lifestyle.allwomenstalk.com/tips-to-prepare-for-school/)
+- [freshmans nerve](https://teen.allwomenstalk.com/tips-to-survive-high-school/)
+- [interesting articles for college students](https://lifestyle.allwomenstalk.com/tips-for-girls-starting-college/)
 - [10 Tips and Tricks Every Modern Girl Should Master...](https://lifestyle.allwomenstalk.com/tips-and-tricks-every-modern-girl-should-master/)
 - [9 Money Tips for Women in Their 20s ...](https://money.allwomenstalk.com/money-tips-for-women-in-their-20s/)
 

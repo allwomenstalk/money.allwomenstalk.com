@@ -42,16 +42,16 @@ Frugal fatigue is a real problem, and it typically strikes after months or years
 
 ## Related Posts
 
-- [once you know how to ____________ money your money...](https://money.allwomenstalk.com/ways-to-stop-letting-money-control-your-life/)
-- [cash money  marvelous](https://money.allwomenstalk.com/money-mantras-you-need-to-adopt-in/)
-- [credit knowledge experts](https://money.allwomenstalk.com/clueless-about-credit-tips-to-boost-your-knowledge/)
 - [why debt is bad](https://money.allwomenstalk.com/reasons-why-debt-is-bad-for-you/)
+- [spending personality](https://money.allwomenstalk.com/things-your-credit-card-says-about-your-spending-personality/)
 - [maxed out credit card outfit](https://money.allwomenstalk.com/types-of-people-who-should-avoid-credit-cards/)
 - [how to live on half your income](https://money.allwomenstalk.com/single-here-are-ways-to-live-off-half-your-income/)
-- [fix inherit amazing](https://money.allwomenstalk.com/ways-to-improve-your-life-when-you-inherit-money/)
-- [how to get your credit to 800](https://money.allwomenstalk.com/of-the-best-ways-to-achieve-an-800-credit-score/)
 - [why credit matters](https://money.allwomenstalk.com/situations-when-your-credit-matters-the-most/)
-- [spending personality](https://money.allwomenstalk.com/things-your-credit-card-says-about-your-spending-personality/)
+- [credit knowledge experts](https://money.allwomenstalk.com/clueless-about-credit-tips-to-boost-your-knowledge/)
+- [how to get your credit to 800](https://money.allwomenstalk.com/of-the-best-ways-to-achieve-an-800-credit-score/)
+- [cash money  marvelous](https://money.allwomenstalk.com/money-mantras-you-need-to-adopt-in/)
+- [fix inherit amazing](https://money.allwomenstalk.com/ways-to-improve-your-life-when-you-inherit-money/)
+- [once you know how to ____________ money your money...](https://money.allwomenstalk.com/ways-to-stop-letting-money-control-your-life/)
 - [7 Signs That You Are a Cheapskate ...](https://lifestyle.allwomenstalk.com/7-signs-that-you-are-a-cheapskate/)
 - [7 Signs That You Are over Spending on Clothes ...](https://allwomenstalk.com/7-signs-that-you-are-over-spending-on-clothes/)
 

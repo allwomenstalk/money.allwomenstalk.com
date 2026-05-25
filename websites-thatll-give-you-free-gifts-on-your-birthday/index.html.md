@@ -54,16 +54,16 @@ If you want to have the best birthday possible, then you need to think ahead. Ma
 
 ## Related Posts
 
-- [being 18](https://lifestyle.allwomenstalk.com/fun-things-you-can-do-in-the-uk-when-you-turn-18/)
-- [capture the magic](https://lifestyle.allwomenstalk.com/fun-and-easy-ways-to-capture-the-magic-of-the-holidays/)
-- [cerebral hobby](https://lifestyle.allwomenstalk.com/excellent-hobbies-to-have-that-develop-the-brain/)
-- [date for christmas party](https://love.allwomenstalk.com/how-to-get-a-date-for-a-christmas-party/)
-- [making a birthday special](https://lifestyle.allwomenstalk.com/how-to-make-your-birthday-memorable/)
 - [pokmeon go](https://apps.allwomenstalk.com/things-that-happen-while-playing-pokemon-go/)
+- [capture the magic](https://lifestyle.allwomenstalk.com/fun-and-easy-ways-to-capture-the-magic-of-the-holidays/)
+- [being 18](https://lifestyle.allwomenstalk.com/fun-things-you-can-do-in-the-uk-when-you-turn-18/)
+- [places to visit when bored](https://inspiration.allwomenstalk.com/great-websites-to-go-on-when-youre-bored/)
+- [date for christmas party](https://love.allwomenstalk.com/how-to-get-a-date-for-a-christmas-party/)
 - [board games for couples](https://love.allwomenstalk.com/classic-board-games-for-couples-to-play-on-rainy-days/)
 - [rainy day girl](https://lifestyle.allwomenstalk.com/quiet-activities-indoor-girls-will-love-to-do-on-rainy-days/)
+- [cerebral hobby](https://lifestyle.allwomenstalk.com/excellent-hobbies-to-have-that-develop-the-brain/)
+- [making a birthday special](https://lifestyle.allwomenstalk.com/how-to-make-your-birthday-memorable/)
 - [participation lineup for 2023 byron bay bluesfest](https://travel.allwomenstalk.com/the-best-festivals-for-your-calendar-for-girls-who-want-to-have-fun/)
-- [places to visit when bored](https://inspiration.allwomenstalk.com/great-websites-to-go-on-when-youre-bored/)
 - [10 Free Entry Attractions in New York ...](https://travel.allwomenstalk.com/free-entry-attractions-in-new-york/)
 - [10 Fantastically Festive Places to Celebrate the N...](https://travel.allwomenstalk.com/fantastically-festive-places-to-celebrate-the-new-year/)
 

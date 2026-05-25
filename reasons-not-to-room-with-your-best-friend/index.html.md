@@ -42,16 +42,16 @@ Living with your best friend isn't the worst thing in the world, but you should 
 
 ## Related Posts
 
-- [should i give this guy a chance](https://love.allwomenstalk.com/reasons-not-to-give-him-a-chance/)
-- [why do you deserve me](https://lifestyle.allwomenstalk.com/reasons-you-deserve-and-need-me-time/)
-- [excuses to get out of plans with friends](https://funny.allwomenstalk.com/excuses-to-use-the-next-time-you-cancel-plans/)
-- [is silence attractive](https://love.allwomenstalk.com/reasons-to-date-a-quiet-guy/)
-- [is a- bad](https://teen.allwomenstalk.com/reasons-not-to-freak-out-if-you-get-a-bad-grade/)
-- [guy rushing into relationship](https://love.allwomenstalk.com/reasons-why-you-shouldnt-rush-into-a-relationship/)
-- [how to get into a relationship in college](https://love.allwomenstalk.com/reasons-to-hold-out-on-a-relationship-in-college/)
-- [i am popular](https://teen.allwomenstalk.com/reasons-not-to-worry-if-youre-not-popular-at-high-school/)
-- [ic social media](https://lifestyle.allwomenstalk.com/reasons-to-spend-less-time-on-social-media/)
 - [cant wait to love you](https://love.allwomenstalk.com/reasons-why-you-shouldnt-wait-to-say-i-love-you/)
+- [i am popular](https://teen.allwomenstalk.com/reasons-not-to-worry-if-youre-not-popular-at-high-school/)
+- [how to get into a relationship in college](https://love.allwomenstalk.com/reasons-to-hold-out-on-a-relationship-in-college/)
+- [ic social media](https://lifestyle.allwomenstalk.com/reasons-to-spend-less-time-on-social-media/)
+- [is silence attractive](https://love.allwomenstalk.com/reasons-to-date-a-quiet-guy/)
+- [excuses to get out of plans with friends](https://funny.allwomenstalk.com/excuses-to-use-the-next-time-you-cancel-plans/)
+- [is a- bad](https://teen.allwomenstalk.com/reasons-not-to-freak-out-if-you-get-a-bad-grade/)
+- [should i give this guy a chance](https://love.allwomenstalk.com/reasons-not-to-give-him-a-chance/)
+- [guy rushing into relationship](https://love.allwomenstalk.com/reasons-why-you-shouldnt-rush-into-a-relationship/)
+- [why do you deserve me](https://lifestyle.allwomenstalk.com/reasons-you-deserve-and-need-me-time/)
 - [7 Reasons to Not Get Married ...](https://love.allwomenstalk.com/reasons-to-not-get-married/)
 - [8 Reasons Not to Have a Friend with Benefits ...](https://allwomenstalk.com/8-reasons-not-to-have-a-friend-with-benefits/)
 

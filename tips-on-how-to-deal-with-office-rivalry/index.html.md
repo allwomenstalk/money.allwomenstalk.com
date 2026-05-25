@@ -42,15 +42,15 @@ Any of you been subject to office gossip? Please feel free to share your experie
 
 ## Related Posts
 
-- [how to tell if someone is a liar](https://lifestyle.allwomenstalk.com/ways-to-tell-if-someone-is-lying/)
-- [how to deal with controlling parents as a teenager](https://lifestyle.allwomenstalk.com/helpful-tips-on-dealing-with-a-controlling-parent/)
 - [when someone lectures you](https://inspiration.allwomenstalk.com/ways-to-handle-unwanted-advice/)
-- [how to stand up to peer pressure](https://teen.allwomenstalk.com/tips-on-how-to-stand-up-to-peer-pressure/)
+- [how to tell if someone is a liar](https://lifestyle.allwomenstalk.com/ways-to-tell-if-someone-is-lying/)
 - [arguing in the alternative](https://love.allwomenstalk.com/alternatives-to-arguing-with-your-boyfriend/)
-- [bad fights](https://love.allwomenstalk.com/worst-ways-to-handle-a-fight-with-your-partner/)
-- [how to get on your teachers good side](https://teen.allwomenstalk.com/tips-on-how-to-get-on-your-professors-good-side/)
-- [how to not hold a grudge](https://lifestyle.allwomenstalk.com/ways-to-stop-holding-grudges/)
 - [harassed in public](https://lifestyle.allwomenstalk.com/ways-to-deal-with-public-harassment/)
+- [how to not hold a grudge](https://lifestyle.allwomenstalk.com/ways-to-stop-holding-grudges/)
+- [how to stand up to peer pressure](https://teen.allwomenstalk.com/tips-on-how-to-stand-up-to-peer-pressure/)
+- [how to get on your teachers good side](https://teen.allwomenstalk.com/tips-on-how-to-get-on-your-professors-good-side/)
+- [bad fights](https://love.allwomenstalk.com/worst-ways-to-handle-a-fight-with-your-partner/)
+- [how to deal with controlling parents as a teenager](https://lifestyle.allwomenstalk.com/helpful-tips-on-dealing-with-a-controlling-parent/)
 - [cant forgive someone](https://lifestyle.allwomenstalk.com/steps-to-take-when-you-cant-forgive-a-friend/)
 - [8 Tips to Settle Sibling Rivalry ...](https://parenting.allwomenstalk.com/8-tips-to-settle-sibling-rivalry/)
 - [8 Incredibly Helpful Ways to Survive in a Hostile ...](https://money.allwomenstalk.com/incredibly-helpful-ways-to-survive-in-a-hostile-work-place/)

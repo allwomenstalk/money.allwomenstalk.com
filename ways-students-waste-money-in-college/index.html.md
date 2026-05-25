@@ -54,16 +54,16 @@ Sorry ladies if that’s preaching a little. I just think, contrary to the gener
 
 ## Related Posts
 
-- [why am i so bad at university](https://lifestyle.allwomenstalk.com/reasons-why-life-after-university-isnt-so-bad/)
-- [7 Classes to Take before You Graduate ...](https://lifestyle.allwomenstalk.com/classes-to-take-before-you-graduate/)
-- [10 Things to Check before Choosing an Online Colle...](https://lifestyle.allwomenstalk.com/things-to-check-before-choosing-an-online-college/)
-- [7 Great College Classes to Try out ...](https://lifestyle.allwomenstalk.com/great-college-classes-to-try-out/)
-- [7 Retailers That Offer Student Discounts ...](https://fashion.allwomenstalk.com/retailers-that-offer-student-discounts/)
+- [9 Ways to Have a Better School Year ...](https://lifestyle.allwomenstalk.com/ways-to-have-a-better-school-year/)
 - [how to start looking for colleges](https://lifestyle.allwomenstalk.com/ways-to-get-a-head-start-on-your-college-search/)
 - [7 Ways to Get a Free Education ...](https://lifestyle.allwomenstalk.com/ways-to-get-a-free-education/)
-- [9 Ways to Have a Better School Year ...](https://lifestyle.allwomenstalk.com/ways-to-have-a-better-school-year/)
-- [8 Tips for Staying Fit at School ...](https://weightloss.allwomenstalk.com/tips-for-staying-fit-at-school/)
+- [7 Great College Classes to Try out ...](https://lifestyle.allwomenstalk.com/great-college-classes-to-try-out/)
+- [7 Retailers That Offer Student Discounts ...](https://fashion.allwomenstalk.com/retailers-that-offer-student-discounts/)
+- [why am i so bad at university](https://lifestyle.allwomenstalk.com/reasons-why-life-after-university-isnt-so-bad/)
+- [10 Things to Check before Choosing an Online Colle...](https://lifestyle.allwomenstalk.com/things-to-check-before-choosing-an-online-college/)
 - [7 Things to Remember over Break ...](https://lifestyle.allwomenstalk.com/things-to-remember-over-break/)
+- [8 Tips for Staying Fit at School ...](https://weightloss.allwomenstalk.com/tips-for-staying-fit-at-school/)
+- [7 Classes to Take before You Graduate ...](https://lifestyle.allwomenstalk.com/classes-to-take-before-you-graduate/)
 - [7 Ways to Cut the Cost of College ...](https://money.allwomenstalk.com/ways-to-cut-the-cost-of-college/)
 - [8 Great Ways to save Money as a College Student .....](https://allwomenstalk.com/ways-to-save-money-as-a-student/)
 

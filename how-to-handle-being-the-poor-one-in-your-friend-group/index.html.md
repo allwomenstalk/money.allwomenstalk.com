@@ -43,13 +43,13 @@ Whether you're the 'poor student' at college or have friends who earn more, be h
 ## Related Posts
 
 - [how can i get rid of jealousy](https://love.allwomenstalk.com/these-tricks-will-get-rid-of-your-jealousy/)
-- [its not you its me truth](https://love.allwomenstalk.com/when-its-not-you-its-me-is-the-truth/)
-- [positive attribute](https://inspiration.allwomenstalk.com/how-to-turn-your-jealousy-into-a-positive-thing/)
-- [friend lie](https://lifestyle.allwomenstalk.com/how-to-deal-with-your-friend-lying-to-you/)
 - [is it normal to have a crush on your professor](https://teen.allwomenstalk.com/how-to-handle-an-embarrassing-crush-on-a-teacher/)
-- [love 911 drama queen](https://inspiration.allwomenstalk.com/ways-to-get-over-your-drama-queen-tendencies-for-good/)
 - [my immature lover drama](https://lifestyle.allwomenstalk.com/how-to-deal-with-immature-friends-for-drama-free-relationships/)
+- [its not you its me truth](https://love.allwomenstalk.com/when-its-not-you-its-me-is-the-truth/)
 - [why do i cry in confrontations](https://inspiration.allwomenstalk.com/how-to-handle-confrontation-without-crying/)
+- [friend lie](https://lifestyle.allwomenstalk.com/how-to-deal-with-your-friend-lying-to-you/)
+- [positive attribute](https://inspiration.allwomenstalk.com/how-to-turn-your-jealousy-into-a-positive-thing/)
+- [love 911 drama queen](https://inspiration.allwomenstalk.com/ways-to-get-over-your-drama-queen-tendencies-for-good/)
 - [sometimes all you need are your friends](https://teen.allwomenstalk.com/how-do-you-handle-being-left-out-by-friends/)
 - [people that annoy you](https://lifestyle.allwomenstalk.com/how-to-establish-social-boundaries-with-people-who-annoy-you/)
 - [How to Be a Good Friend: 7 Ways to Avoid Friendshi...](https://lifestyle.allwomenstalk.com/how-to-be-a-good-friend-7-ways-to-avoid-friendship-failures/)

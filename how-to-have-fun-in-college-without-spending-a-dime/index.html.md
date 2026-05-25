@@ -42,16 +42,16 @@ Whoever says you have to spend money to have fun doesn't have an imagination. Th
 
 ## Related Posts
 
-- [Heading to College  Heres How to Make the Most of ...](https://teen.allwomenstalk.com/heres-how-to-make-the-most-of-your-last-summer-before-college/)
-- [shhh secrets reviews](https://teen.allwomenstalk.com/shhh-no-one-ever-tells-you-these-secrets-about-college/)
-- [Beat the School Blues - Tips for a Lazy Student .....](https://teen.allwomenstalk.com/beat-the-school-blues-life-hacks-for-a-lazy-student/)
-- [How to Stay Motivated as the School Year Draws to ...](https://teen.allwomenstalk.com/how-to-stay-motivated-as-the-school-year-draws-to-a-close/)
 - [Be Your Own Boss: How College Kids Can Make Money ...](https://money.allwomenstalk.com/be-your-own-boss-how-college-kids-can-make-money-without-an-actual-job/)
-- [Schools Almost out Dont Make These Post-Grad Money...](https://money.allwomenstalk.com/schools-almost-out-dont-make-these-post-grad-money-mistakes/)
-- [7 Lifesaving Tips for Filling out Those Endless Co...](https://teen.allwomenstalk.com/lifesaving-tips-for-filling-out-those-endless-college-applications/)
-- [7 Things to do during Your Study Break That Can Ac...](https://teen.allwomenstalk.com/things-to-do-during-your-study-break-that-can-actually-help-you-get-a-better-grade/)
-- [sufficient skills](https://teen.allwomenstalk.com/self-sufficient-skills-thatll-help-you-when-you-reach-college/)
 - [Failure Isnt an Option - Study Hacks Thatll Get Yo...](https://teen.allwomenstalk.com/failure-isnt-an-option-study-hacks-thatll-get-you-an-a-guaranteed/)
+- [sufficient skills](https://teen.allwomenstalk.com/self-sufficient-skills-thatll-help-you-when-you-reach-college/)
+- [Schools Almost out Dont Make These Post-Grad Money...](https://money.allwomenstalk.com/schools-almost-out-dont-make-these-post-grad-money-mistakes/)
+- [How to Stay Motivated as the School Year Draws to ...](https://teen.allwomenstalk.com/how-to-stay-motivated-as-the-school-year-draws-to-a-close/)
+- [shhh secrets reviews](https://teen.allwomenstalk.com/shhh-no-one-ever-tells-you-these-secrets-about-college/)
+- [7 Lifesaving Tips for Filling out Those Endless Co...](https://teen.allwomenstalk.com/lifesaving-tips-for-filling-out-those-endless-college-applications/)
+- [Heading to College  Heres How to Make the Most of ...](https://teen.allwomenstalk.com/heres-how-to-make-the-most-of-your-last-summer-before-college/)
+- [Beat the School Blues - Tips for a Lazy Student .....](https://teen.allwomenstalk.com/beat-the-school-blues-life-hacks-for-a-lazy-student/)
+- [7 Things to do during Your Study Break That Can Ac...](https://teen.allwomenstalk.com/things-to-do-during-your-study-break-that-can-actually-help-you-get-a-better-grade/)
 - [8 Great Ways to save Money as a College Student .....](https://allwomenstalk.com/ways-to-save-money-as-a-student/)
 - [10 Ways to save Money for College ...](https://allwomenstalk.com/10-ways-to-save-money-for-college/)
 

@@ -48,16 +48,16 @@ Phone interviews can sometimes be nerve-racking but if you are well-prepared and
 
 ## Related Posts
 
-- [interview infographic](https://money.allwomenstalk.com/best-job-infographics-to-help-you-ace-that-interview/)
-- [can you quit a part time job at any time](https://money.allwomenstalk.com/reasons-why-you-shouldnt-abruptly-quit-your-part-time-job/)
-- [career choices for introverts](https://money.allwomenstalk.com/great-careers-for-introverts/)
-- [rude interview questions](https://lifestyle.allwomenstalk.com/excellent-answers-for-awkward-interview-questions/)
 - [awesome jobs](https://money.allwomenstalk.com/awesome-jobs-that-actually-exist/)
-- [skills that look good on a resume](https://money.allwomenstalk.com/skills-that-look-great-on-a-resume/)
-- [what to do when you get a demotion](https://money.allwomenstalk.com/incredible-ways-to-bounce-back-from-a-demotion/)
+- [rude interview questions](https://lifestyle.allwomenstalk.com/excellent-answers-for-awkward-interview-questions/)
 - [80s businesswoman hair](https://money.allwomenstalk.com/benefits-of-teaming-up-with-a-recruiter/)
+- [what to do when you get a demotion](https://money.allwomenstalk.com/incredible-ways-to-bounce-back-from-a-demotion/)
+- [career choices for introverts](https://money.allwomenstalk.com/great-careers-for-introverts/)
 - [jobs for an empathetic person](https://money.allwomenstalk.com/compassionate-careers-that-make-a-difference/)
+- [can you quit a part time job at any time](https://money.allwomenstalk.com/reasons-why-you-shouldnt-abruptly-quit-your-part-time-job/)
 - [good websites to find a job](https://money.allwomenstalk.com/most-effective-job-search-websites/)
+- [skills that look good on a resume](https://money.allwomenstalk.com/skills-that-look-great-on-a-resume/)
+- [interview infographic](https://money.allwomenstalk.com/best-job-infographics-to-help-you-ace-that-interview/)
 - [7 Tips on Applying for a Job ...](https://parenting.allwomenstalk.com/7-tips-on-applying-for-a-job/)
 - [7 Ways to Prepare for a Job Interview ...](https://allwomenstalk.com/7-ways-to-prepare-for-a-job-interview/)
 

@@ -42,16 +42,16 @@ Anyone else out there who experienced the same difficulties?
 
 ## Related Posts
 
-- [Have You Thought about Pursuing the Hottest Colleg...](https://teen.allwomenstalk.com/hot-college-majors-that-you-should-consider/)
-- [Everything You Need to Know about Writing a Schola...](https://teen.allwomenstalk.com/tips-for-writing-a-scholarship-essay/)
-- [7 Tips on How to Build a Resume when in High Schoo...](https://teen.allwomenstalk.com/tips-on-how-to-build-a-resume-when-in-high-school/)
 - [7 Helpful Tips for Getting into Grad School ...](https://lifestyle.allwomenstalk.com/helpful-tips-for-getting-into-grad-school/)
 - [Get Some Help with Narrowing down Your College Lis...](https://teen.allwomenstalk.com/helpful-tips-for-narrowing-down-your-college-list/)
-- [7 Natural Ways to Deal with College Stress ...](https://teen.allwomenstalk.com/natural-ways-to-deal-with-college-stress/)
+- [Have You Thought about Pursuing the Hottest Colleg...](https://teen.allwomenstalk.com/hot-college-majors-that-you-should-consider/)
 - [appreciate your time](https://lifestyle.allwomenstalk.com/reasons-why-you-should-appreciate-your-time-at-university/)
-- [Are You Prepared to Get Your Masters Degree ...](https://lifestyle.allwomenstalk.com/things-to-know-about-taking-a-masters-degree/)
+- [7 Tips on How to Build a Resume when in High Schoo...](https://teen.allwomenstalk.com/tips-on-how-to-build-a-resume-when-in-high-school/)
 - [secret ivy league schools](https://teen.allwomenstalk.com/well-kept-secrets-of-the-ivy-league/)
+- [Everything You Need to Know about Writing a Schola...](https://teen.allwomenstalk.com/tips-for-writing-a-scholarship-essay/)
 - [Read This if You Need Help with the Common Applica...](https://teen.allwomenstalk.com/tips-for-understanding-the-common-application/)
+- [Are You Prepared to Get Your Masters Degree ...](https://lifestyle.allwomenstalk.com/things-to-know-about-taking-a-masters-degree/)
+- [7 Natural Ways to Deal with College Stress ...](https://teen.allwomenstalk.com/natural-ways-to-deal-with-college-stress/)
 - [10 Reasons to Work Online ...](https://allwomenstalk.com/10-reasons-to-work-online/)
 - [8 Challenges of Working from Home ...](https://allwomenstalk.com/8-challenges-of-working-from-home/)
 

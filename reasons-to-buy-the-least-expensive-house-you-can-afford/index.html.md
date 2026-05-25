@@ -44,16 +44,16 @@ How were you able to stay in budget when buying a house?
 
 ## Related Posts
 
-- [how to build a panic room for a home invasion](https://lifestyle.allwomenstalk.com/ways-to-handle-a-home-invasion/)
-- [common myths about traveling abroad](https://travel.allwomenstalk.com/common-misconceptions-about-moving-abroad/)
-- [trailer that looks like a house](https://diy.allwomenstalk.com/ways-to-create-more-space-in-a-single-wide-trailer/)
 - [tips for having a garage sale](https://money.allwomenstalk.com/safety-tips-to-remember-when-having-a-garage-sale-at-your-home/)
-- [furnishing my apartment](https://diy.allwomenstalk.com/ways-to-furnish-a-small-apartment/)
-- [how to deal with moving](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-move/)
+- [common myths about traveling abroad](https://travel.allwomenstalk.com/common-misconceptions-about-moving-abroad/)
 - [slumlord](https://money.allwomenstalk.com/reasons-why-some-renters-are-happier-than-homeowners/)
-- [bad living habits](https://lifestyle.allwomenstalk.com/bad-habits-to-avoid-when-you-live-alone/)
-- [opposite gender roommate](https://lifestyle.allwomenstalk.com/things-to-consider-before-moving-in-with-a-male-roommate/)
+- [trailer that looks like a house](https://diy.allwomenstalk.com/ways-to-create-more-space-in-a-single-wide-trailer/)
 - [how to evict roommate not on lease](https://funny.allwomenstalk.com/ways-to-get-an-annoying-roommate-to-move-out/)
+- [how to build a panic room for a home invasion](https://lifestyle.allwomenstalk.com/ways-to-handle-a-home-invasion/)
+- [bad living habits](https://lifestyle.allwomenstalk.com/bad-habits-to-avoid-when-you-live-alone/)
+- [furnishing my apartment](https://diy.allwomenstalk.com/ways-to-furnish-a-small-apartment/)
+- [opposite gender roommate](https://lifestyle.allwomenstalk.com/things-to-consider-before-moving-in-with-a-male-roommate/)
+- [how to deal with moving](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-move/)
 - [Try before You Buy ...](https://allwomenstalk.com/try-before-you-buy-2/)
 - [7 Reasons to Refinance Your Mortgage Loan ...](https://money.allwomenstalk.com/reasons-to-refinance-your-mortgage-loan/)
 

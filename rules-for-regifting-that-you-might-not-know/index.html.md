@@ -44,12 +44,12 @@ What regifting rules do you follow?
 
 ## Related Posts
 
-- [gifts for craft lovers](https://lifestyle.allwomenstalk.com/best-gifts-for-the-craft-lovers-in-your-life/)
+- [gifts for flower girl](https://wedding.allwomenstalk.com/gift-ideas-for-flower-girls/)
 - [what to give the man who has everything](https://lifestyle.allwomenstalk.com/great-gifts-for-a-guy-who-has-everything/)
+- [10 Awesome Gifts for the Beauty Addict in Your Lif...](https://beauty.allwomenstalk.com/awesome-gifts-for-the-beauty-addict-in-your-life/)
+- [gifts for craft lovers](https://lifestyle.allwomenstalk.com/best-gifts-for-the-craft-lovers-in-your-life/)
 - [creative anniversary gifts for men](https://gifts.allwomenstalk.com/creative-anniversary-gifts-your-guy-will-actually-want/)
 - [winter bridesmaids gifts](https://wedding.allwomenstalk.com/bridesmaids-gift-ideas-for-under-25/)
-- [10 Awesome Gifts for the Beauty Addict in Your Lif...](https://beauty.allwomenstalk.com/awesome-gifts-for-the-beauty-addict-in-your-life/)
-- [gifts for flower girl](https://wedding.allwomenstalk.com/gift-ideas-for-flower-girls/)
 - [21 Christmas Gifts for the Men in Your Life ...](https://lifestyle.allwomenstalk.com/christmas-gifts-for-the-men-in-your-life/)
 - [unusual diy gifts](https://diy.allwomenstalk.com/unique-diy-gifts-for-your-loved-ones/)
 - [7 Great Gifts for Recent Grads ...](https://teen.allwomenstalk.com/great-gifts-for-recent-grads/)

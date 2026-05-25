@@ -41,15 +41,15 @@ Do you see your product purchases as investments? Almost everything that you buy
 ## Related Posts
 
 - [think of 3 important decisions you will make that ...](https://money.allwomenstalk.com/the-most-important-financial-decisions-you-will-make-in-your-life/)
-- [personal finance for college students](https://money.allwomenstalk.com/useful-personal-finance-lessons-for-college-students/)
-- [out-of-pocket expenses](https://health.allwomenstalk.com/what-do-out-of-pocket-expenses-mean/)
-- [financial advice for familes](https://money.allwomenstalk.com/financial-planning-tips-for-families/)
 - [non mortgage installment loan example](https://money.allwomenstalk.com/what-are-installment-loans/)
-- [paid surveys for women](https://money.allwomenstalk.com/try-these-paid-surveys-to-make-some-extra-cash/)
-- [help paying off debt](https://money.allwomenstalk.com/need-help-paying-off-debt-on-a-low-income-check-this-out/)
+- [financial advice for familes](https://money.allwomenstalk.com/financial-planning-tips-for-families/)
 - [financial basics everyone should know](https://money.allwomenstalk.com/basics-of-finance-everyone-should-know/)
-- [advice from billionaires](https://money.allwomenstalk.com/advice-to-graduates-from-billionaires/)
+- [personal finance for college students](https://money.allwomenstalk.com/useful-personal-finance-lessons-for-college-students/)
 - [how much profit do dealerships make on used cars](https://allwomenstalk.com/what-is-the-dealer-markup-on-used-cars/)
+- [advice from billionaires](https://money.allwomenstalk.com/advice-to-graduates-from-billionaires/)
+- [help paying off debt](https://money.allwomenstalk.com/need-help-paying-off-debt-on-a-low-income-check-this-out/)
+- [out-of-pocket expenses](https://health.allwomenstalk.com/what-do-out-of-pocket-expenses-mean/)
+- [paid surveys for women](https://money.allwomenstalk.com/try-these-paid-surveys-to-make-some-extra-cash/)
 - [7 Shopping Mistakes ...](https://lifestyle.allwomenstalk.com/7-shopping-mistakes/)
 - [10 Top Mortgage Mistakes to Avoid ...](https://lifestyle.allwomenstalk.com/top-mortgage-mistakes-to-avoid/)
 

@@ -42,16 +42,16 @@ I believe each of us have the right to keep our bills, debt, our salaries, and o
 
 ## Related Posts
 
+- [ways to keep relationship alive](https://love.allwomenstalk.com/unique-ways-to-keep-your-relationship-alive-and-happy/)
+- [how to sweet talk a guy](https://love.allwomenstalk.com/tips-on-how-to-avoid-getting-romantically-involved-with-the-wrong-person/)
+- [i cant find one](https://love.allwomenstalk.com/important-things-to-remember-when-you-cant-find-the-one/)
+- [have a blissful marriage](https://love.allwomenstalk.com/tips-for-a-blissful-marriage-that-have-worked-for-me/)
+- [what couples should talk about](https://love.allwomenstalk.com/important-things-happy-couples-talk-about-that-you-should-try-too/)
+- [how to divorce proof your marriage](https://love.allwomenstalk.com/tips-for-making-your-marriage-divorce-proof/)
+- [marrying your opposite](https://love.allwomenstalk.com/ways-to-thrive-in-your-marriage-if-youre-married-to-your-opposite/)
 - [steps to a happy marriage](https://love.allwomenstalk.com/steps-to-a-happy-marriage/)
 - [my life doesnt revolve around you quotes](https://love.allwomenstalk.com/tips-on-how-not-to-let-your-life-revolve-around-your-partner/)
-- [marrying your opposite](https://love.allwomenstalk.com/ways-to-thrive-in-your-marriage-if-youre-married-to-your-opposite/)
-- [how to divorce proof your marriage](https://love.allwomenstalk.com/tips-for-making-your-marriage-divorce-proof/)
-- [have a blissful marriage](https://love.allwomenstalk.com/tips-for-a-blissful-marriage-that-have-worked-for-me/)
 - [love is necessary cliche](https://love.allwomenstalk.com/love-cliches-that-feel-true-when-youre-in-a-happy-relationship/)
-- [ways to keep relationship alive](https://love.allwomenstalk.com/unique-ways-to-keep-your-relationship-alive-and-happy/)
-- [i cant find one](https://love.allwomenstalk.com/important-things-to-remember-when-you-cant-find-the-one/)
-- [what couples should talk about](https://love.allwomenstalk.com/important-things-happy-couples-talk-about-that-you-should-try-too/)
-- [how to sweet talk a guy](https://love.allwomenstalk.com/tips-on-how-to-avoid-getting-romantically-involved-with-the-wrong-person/)
 - [7 Ways Reality TV Ruins Relationships ...](https://love.allwomenstalk.com/ways-reality-tv-ruins-relationships/)
 - [7 Things That Can Ruin a Strong Marriage ...](https://allwomenstalk.com/things-that-can-ruin-a-strong-marriage/)
 

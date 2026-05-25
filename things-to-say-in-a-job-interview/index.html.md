@@ -42,16 +42,16 @@ Interviews can be fun, stressful, and even terrifying. But if you are prepared a
 
 ## Related Posts
 
-- [how to make your business look more professional](https://lifestyle.allwomenstalk.com/tips-to-make-your-business-look-more-professional/)
-- [how to get exposure](https://money.allwomenstalk.com/useful-tips-for-increasing-your-professional-visibility-and-exposure/)
-- [things you need in your office](https://lifestyle.allwomenstalk.com/important-things-you-need-to-have-at-your-office-desk/)
+- [better career prospects](https://lifestyle.allwomenstalk.com/ways-to-boost-your-career-prospects/)
+- [10 common time management mistakes](https://lifestyle.allwomenstalk.com/of-the-most-common-time-management-mistakes/)
 - [types of work people do](https://lifestyle.allwomenstalk.com/types-of-people-you-find-in-the-work-office/)
-- [signs you are being headhunted](https://lifestyle.allwomenstalk.com/ways-you-know-youve-made-it-in-your-career/)
+- [scott gerber](https://money.allwomenstalk.com/things-scott-gerber-says-about-working-for-yourself/)
+- [how to make your business look more professional](https://lifestyle.allwomenstalk.com/tips-to-make-your-business-look-more-professional/)
 - [bad first week at new job](https://money.allwomenstalk.com/helpful-tips-for-surviving-the-first-week-at-a-new-job/)
 - [chat with boss](https://money.allwomenstalk.com/ways-to-talk-with-your-boss-about-your-future/)
-- [10 common time management mistakes](https://lifestyle.allwomenstalk.com/of-the-most-common-time-management-mistakes/)
-- [scott gerber](https://money.allwomenstalk.com/things-scott-gerber-says-about-working-for-yourself/)
-- [better career prospects](https://lifestyle.allwomenstalk.com/ways-to-boost-your-career-prospects/)
+- [signs you are being headhunted](https://lifestyle.allwomenstalk.com/ways-you-know-youve-made-it-in-your-career/)
+- [how to get exposure](https://money.allwomenstalk.com/useful-tips-for-increasing-your-professional-visibility-and-exposure/)
+- [things you need in your office](https://lifestyle.allwomenstalk.com/important-things-you-need-to-have-at-your-office-desk/)
 - [10 Tips to Ace That Interview ...](https://allwomenstalk.com/10-tips-to-ace-that-interview/)
 - [10 Tips on Finding a Job ...](https://allwomenstalk.com/10-tips-on-finding-a-job/)
 

@@ -42,16 +42,16 @@ Well ladies, these are my tips for being thrifty. How do you get the most out of
 
 ## Related Posts
 
-- [making budgeting fun](https://money.allwomenstalk.com/simple-steps-to-make-budgeting-fun-this-autumn/)
-- [buying college textbooks](https://money.allwomenstalk.com/places-to-buy-college-textbooks-where-you-can-save-money/)
-- [tips for sticking to a budget](https://money.allwomenstalk.com/tips-for-sticking-to-your-food-budget/)
-- [save money on groceries tips](https://money.allwomenstalk.com/awesome-tips-for-saving-money-on-groceries/)
 - [how to help others in need](https://inspiration.allwomenstalk.com/terrific-and-low-cost-tips-for-helping-others-that-require-little-effort/)
-- [working from home saves money](https://money.allwomenstalk.com/ways-working-from-home-saves-you-money/)
-- [supermarket tricks](https://lifestyle.allwomenstalk.com/sneaky-supermarket-spending-tricks-you-should-avoid/)
-- [how to save money for a car](https://money.allwomenstalk.com/ways-to-save-up-for-your-dream-car/)
 - [early christmas shopping deals](https://lifestyle.allwomenstalk.com/tips-for-getting-your-christmas-shopping-done-really-early/)
 - [things worth spending on](https://food.allwomenstalk.com/grocery-items-worth-spending-on/)
+- [making budgeting fun](https://money.allwomenstalk.com/simple-steps-to-make-budgeting-fun-this-autumn/)
+- [tips for sticking to a budget](https://money.allwomenstalk.com/tips-for-sticking-to-your-food-budget/)
+- [how to save money for a car](https://money.allwomenstalk.com/ways-to-save-up-for-your-dream-car/)
+- [working from home saves money](https://money.allwomenstalk.com/ways-working-from-home-saves-you-money/)
+- [supermarket tricks](https://lifestyle.allwomenstalk.com/sneaky-supermarket-spending-tricks-you-should-avoid/)
+- [save money on groceries tips](https://money.allwomenstalk.com/awesome-tips-for-saving-money-on-groceries/)
+- [buying college textbooks](https://money.allwomenstalk.com/places-to-buy-college-textbooks-where-you-can-save-money/)
 - [10 Ways to save Money by Being Frugal ...](https://money.allwomenstalk.com/ways-to-save-money-by-being-frugal/)
 - [7 Budgeting Tips to save You Money ...](https://money.allwomenstalk.com/budgeting-tips-to-save-you-money/)
 

@@ -48,16 +48,16 @@ Top Photo Credit: [jeffedoe](https://www.flickr.com/photos/jeffedoe/3203559402/)
 
 ## Related Posts
 
-- [marc jacobs laptop sleeve](https://lifestyle.allwomenstalk.com/nifty-neoprene-laptop-cases/)
-- [refillable powder compact with mirror](https://makeup.allwomenstalk.com/stylish-compacts/)
 - [what i bought today](https://lifestyle.allwomenstalk.com/things-i-bought-today/)
+- [marc jacobs laptop sleeve](https://lifestyle.allwomenstalk.com/nifty-neoprene-laptop-cases/)
 - [Giveaway Contest Winner: the Spotted Olive Station...](https://lifestyle.allwomenstalk.com/giveaway-contest-winner-the-spotted-olive-stationery-set/)
-- [bumper stickers for bad drivers](https://lifestyle.allwomenstalk.com/car-bumper-stickers-i-wish-i-had/)
 - [nordstrom coasters](https://lifestyle.allwomenstalk.com/eye-catching-coasters/)
+- [refillable powder compact with mirror](https://makeup.allwomenstalk.com/stylish-compacts/)
 - [coolest cars under 18000](https://money.allwomenstalk.com/great-cars-under-18000/)
-- [docking stations for ipods](https://lifestyle.allwomenstalk.com/fun-ipod-docks/)
-- [7 Great 2 in 1 Products to Try ...](https://beauty.allwomenstalk.com/great-in-1-products-to-try/)
 - [Getting to Know ETSY Shop: Vint Design ...](https://lifestyle.allwomenstalk.com/getting-to-know-etsy-shop-vint-design/)
+- [7 Great 2 in 1 Products to Try ...](https://beauty.allwomenstalk.com/great-in-1-products-to-try/)
+- [bumper stickers for bad drivers](https://lifestyle.allwomenstalk.com/car-bumper-stickers-i-wish-i-had/)
+- [docking stations for ipods](https://lifestyle.allwomenstalk.com/fun-ipod-docks/)
 - [8 Essential Travel Items You Always Forget to Pack...](https://travel.allwomenstalk.com/essential-travel-items-you-always-forget-to-pack-but-shouldnt/)
 - [8 Best Fashion Tips of All Time ...](https://fashion.allwomenstalk.com/best-fashion-tips-of-all-time/)
 

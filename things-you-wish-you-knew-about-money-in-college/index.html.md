@@ -42,16 +42,16 @@ The college years are all about growing and learning. But while you're attending
 
 ## Related Posts
 
-- [This is How You Can Afford College All on Your Own...](https://money.allwomenstalk.com/this-is-how-you-can-afford-college-all-on-your-own/)
-- [7 Life Lessons That College Wont Teach You ...](https://inspiration.allwomenstalk.com/life-lessons-that-college-wont-teach-you/)
-- [Keep Calm and Grade on: Dealing with Exam Nerves s...](https://teen.allwomenstalk.com/tips-for-dealing-with-exam-nerves-so-you-can-succeed/)
-- [7 Resume Boosting Student Vacations ...](https://travel.allwomenstalk.com/resume-boosting-student-vacations/)
-- [7 Organisation Tricks Thatll Make Studying Easy .....](https://teen.allwomenstalk.com/organisation-tricks-thatll-make-studying-easy/)
-- [Thought-provoking Points to Consider if Youre Thin...](https://lifestyle.allwomenstalk.com/points-to-consider-if-youre-thinking-of-dropping-out-of-college/)
-- [mcat success tips](https://teen.allwomenstalk.com/tips-for-studying-for-the-mcat/)
 - [7 Tips for Mature Students ...](https://lifestyle.allwomenstalk.com/tips-for-mature-students/)
 - [7 Questions to Ask Yourself when Your Two Dream Co...](https://teen.allwomenstalk.com/questions-to-ask-yourself-when-your-two-dream-colleges-accept-you/)
+- [7 Resume Boosting Student Vacations ...](https://travel.allwomenstalk.com/resume-boosting-student-vacations/)
+- [mcat success tips](https://teen.allwomenstalk.com/tips-for-studying-for-the-mcat/)
+- [Keep Calm and Grade on: Dealing with Exam Nerves s...](https://teen.allwomenstalk.com/tips-for-dealing-with-exam-nerves-so-you-can-succeed/)
 - [how to stay organized for school](https://teen.allwomenstalk.com/ways-to-become-more-organized-at-school-this-year/)
+- [7 Organisation Tricks Thatll Make Studying Easy .....](https://teen.allwomenstalk.com/organisation-tricks-thatll-make-studying-easy/)
+- [Thought-provoking Points to Consider if Youre Thin...](https://lifestyle.allwomenstalk.com/points-to-consider-if-youre-thinking-of-dropping-out-of-college/)
+- [7 Life Lessons That College Wont Teach You ...](https://inspiration.allwomenstalk.com/life-lessons-that-college-wont-teach-you/)
+- [This is How You Can Afford College All on Your Own...](https://money.allwomenstalk.com/this-is-how-you-can-afford-college-all-on-your-own/)
 - [8 Great Ways to save Money as a College Student .....](https://allwomenstalk.com/ways-to-save-money-as-a-student/)
 - [10 Ways to save Money for College ...](https://allwomenstalk.com/10-ways-to-save-money-for-college/)
 

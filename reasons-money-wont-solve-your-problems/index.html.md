@@ -42,16 +42,16 @@ So don't spend your life wishing that you could get hold of more money to solve 
 
 ## Related Posts
 
-- [stretch a dollar](https://money.allwomenstalk.com/ways-to-stretch-the-dollar-when-raising-children-on-your-own/)
 - [7 steps to achieve financial freedom](https://money.allwomenstalk.com/the-steps-to-being-financially-free/)
-- [how to be more disciplined with money](https://money.allwomenstalk.com/ways-to-be-financially-disciplined-at-a-young-age/)
-- [improper way of handling money](https://money.allwomenstalk.com/signs-you-are-bad-at-handling-money-and-ways-to-fix-it/)
-- [lost wallet what to do](https://money.allwomenstalk.com/important-things-you-should-do-immediately-after-losing-your-wallet/)
-- [loose change money](https://money.allwomenstalk.com/loose-change-lying-around-heres-how-you-can-spend-it/)
-- [teaching credit cards to high school students](https://money.allwomenstalk.com/reasons-you-need-to-get-a-credit-card-while-in-high-school/)
-- [fights about money](https://love.allwomenstalk.com/ways-to-prevent-money-fights-with-your-partner/)
-- [overspending friends](https://money.allwomenstalk.com/are-your-friends-making-you-overspend-heres-what-to-do/)
 - [funny credit card design](https://money.allwomenstalk.com/you-might-prefer-cash-but-heres-times-when-its-better-to-use-credit/)
+- [fights about money](https://love.allwomenstalk.com/ways-to-prevent-money-fights-with-your-partner/)
+- [improper way of handling money](https://money.allwomenstalk.com/signs-you-are-bad-at-handling-money-and-ways-to-fix-it/)
+- [stretch a dollar](https://money.allwomenstalk.com/ways-to-stretch-the-dollar-when-raising-children-on-your-own/)
+- [overspending friends](https://money.allwomenstalk.com/are-your-friends-making-you-overspend-heres-what-to-do/)
+- [loose change money](https://money.allwomenstalk.com/loose-change-lying-around-heres-how-you-can-spend-it/)
+- [how to be more disciplined with money](https://money.allwomenstalk.com/ways-to-be-financially-disciplined-at-a-young-age/)
+- [teaching credit cards to high school students](https://money.allwomenstalk.com/reasons-you-need-to-get-a-credit-card-while-in-high-school/)
+- [lost wallet what to do](https://money.allwomenstalk.com/important-things-you-should-do-immediately-after-losing-your-wallet/)
 - [6 Reasons Why Your Money Just Disappears ...](https://allwomenstalk.com/6-reasons-why-your-money-just-disappears/)
 - [7 Reasons to Avoid Credit Problems ...](https://allwomenstalk.com/7-reasons-to-avoid-credit-problems/)
 

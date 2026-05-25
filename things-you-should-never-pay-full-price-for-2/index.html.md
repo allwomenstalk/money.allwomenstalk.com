@@ -42,16 +42,16 @@ I hope these shopping tips help you to avoid paying full price for these product
 
 ## Related Posts
 
-- [put a foot in it](https://inspiration.allwomenstalk.com/things-to-do-when-you-put-your-foot-in-your-mouth/)
-- [7 things you should never wear on a plane](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-plane/)
 - [potato and onion storage](https://food.allwomenstalk.com/produce-items-you-shouldnt-keep-in-the-fridge/)
-- [ruin a day](https://lifestyle.allwomenstalk.com/common-little-things-that-can-ruin-your-day/)
+- [worst text messages to receive](https://funny.allwomenstalk.com/worst-text-messages-you-never-want-to-receive/)
+- [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
+- [things to avoid in an essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-an-essay/)
+- [put a foot in it](https://inspiration.allwomenstalk.com/things-to-do-when-you-put-your-foot-in-your-mouth/)
+- [what things should friends never do](https://teen.allwomenstalk.com/things-you-should-never-do-as-a-friend/)
+- [7 things you should never wear on a plane](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-plane/)
 - [am i unattractive](https://inspiration.allwomenstalk.com/unattractive-personality-traits-you-should-consider-losing/)
 - [what are you glad your parents dont know about you...](https://parenting.allwomenstalk.com/things-your-parents-dont-need-to-know-about-you/)
-- [worst text messages to receive](https://funny.allwomenstalk.com/worst-text-messages-you-never-want-to-receive/)
-- [what things should friends never do](https://teen.allwomenstalk.com/things-you-should-never-do-as-a-friend/)
-- [things to avoid in an essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-an-essay/)
-- [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
+- [ruin a day](https://lifestyle.allwomenstalk.com/common-little-things-that-can-ruin-your-day/)
 - [7 Quintessential Things You Shouldnt Needlessly Ec...](https://money.allwomenstalk.com/quintessential-things-you-shouldnt-needlessly-economize-on/)
 - [7 Surprisingly Useful Tips to Frugal Shopping ...](https://money.allwomenstalk.com/surprisingly-useful-tips-to-frugal-shopping/)
 

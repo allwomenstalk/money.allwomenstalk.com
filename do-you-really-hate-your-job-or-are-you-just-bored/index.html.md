@@ -50,16 +50,16 @@ I count myself very lucky to absolutely love my job. How do you feel about yours
 
 ## Related Posts
 
+- [amulets of egypt](https://jewelry.allwomenstalk.com/how-much-do-you-know-about-ancient-egyptian-amulets/)
+- [cutting hair shorter](https://hair.allwomenstalk.com/is-it-time-to-cut-your-hair-short/)
+- [hitguys](https://love.allwomenstalk.com/hot-guys-which-one-is-your-type/)
+- [newlywed show questions](https://love.allwomenstalk.com/can-you-and-your-bf-answer-these-newlywed-show-questions/)
 - [destined with you break up](https://love.allwomenstalk.com/are-you-destined-to-break-up/)
 - [someone with good values](https://inspiration.allwomenstalk.com/what-values-make-you-a-good-person/)
-- [what type of reader am i](https://books.allwomenstalk.com/what-type-of-reader-are-you/)
 - [following footsteps](https://lifestyle.allwomenstalk.com/do-your-parents-want-you-to-follow-in-their-footsteps/)
-- [amulets of egypt](https://jewelry.allwomenstalk.com/how-much-do-you-know-about-ancient-egyptian-amulets/)
-- [hitguys](https://love.allwomenstalk.com/hot-guys-which-one-is-your-type/)
-- [cutting hair shorter](https://hair.allwomenstalk.com/is-it-time-to-cut-your-hair-short/)
-- [newlywed show questions](https://love.allwomenstalk.com/can-you-and-your-bf-answer-these-newlywed-show-questions/)
-- [what to do when the girl you like is taken](https://love.allwomenstalk.com/what-do-you-do-when-your-crush-is-taken/)
 - [capsule wardrobe books](https://fashion.allwomenstalk.com/what-on-earth-is-a-capsule-wardrobe-and-why-do-you-need-to-try-it-asap/)
+- [what to do when the girl you like is taken](https://love.allwomenstalk.com/what-do-you-do-when-your-crush-is-taken/)
+- [what type of reader am i](https://books.allwomenstalk.com/what-type-of-reader-are-you/)
 - [Should You Hate Twitter or Merely Hate the Hype Su...](https://allwomenstalk.com/should-you-hate-twitter-or-merely-hate-the-hype-surrounding-it/)
 - [Is Daydreaming Just a Waste of Your Time](https://allwomenstalk.com/is-daydreaming-just-a-waste-of-your-time/)
 

@@ -46,16 +46,16 @@ Sources:
 
 ## Related Posts
 
+- [the 3 things you should do first if you lose your ...](https://money.allwomenstalk.com/important-first-steps-to-take-when-you-lose-your-job/)
 - [careers that pay you to travel](https://travel.allwomenstalk.com/careers-that-could-take-you-around-the-world/)
+- [skills needed to become an entrepreneur](https://money.allwomenstalk.com/skills-you-need-to-be-an-entrepreneur/)
 - [best places for a hidden tattoo](https://beauty.allwomenstalk.com/spots-to-get-a-tattoo-that-employers-wont-care-about/)
-- [i dont want to become a doctor](https://money.allwomenstalk.com/careers-in-medicine-if-you-dont-want-to-be-a-doctor/)
-- [so you got stumped in a job interview. here s how ...](https://money.allwomenstalk.com/things-you-should-do-if-you-are-stumped-during-a-job-interview/)
-- [what to say for a follow up interview](https://money.allwomenstalk.com/things-to-say-in-your-interview-follow-up-letter/)
+- [things to consider before choosing a career](https://money.allwomenstalk.com/steps-to-take-before-choosing-a-career/)
 - [lawyer personality types](https://money.allwomenstalk.com/useful-infographics-to-help-your-career/)
 - [business savvy](https://apps.allwomenstalk.com/websites-to-make-you-business-savvy/)
-- [things to consider before choosing a career](https://money.allwomenstalk.com/steps-to-take-before-choosing-a-career/)
-- [skills needed to become an entrepreneur](https://money.allwomenstalk.com/skills-you-need-to-be-an-entrepreneur/)
-- [the 3 things you should do first if you lose your ...](https://money.allwomenstalk.com/important-first-steps-to-take-when-you-lose-your-job/)
+- [what to say for a follow up interview](https://money.allwomenstalk.com/things-to-say-in-your-interview-follow-up-letter/)
+- [so you got stumped in a job interview. here s how ...](https://money.allwomenstalk.com/things-you-should-do-if-you-are-stumped-during-a-job-interview/)
+- [i dont want to become a doctor](https://money.allwomenstalk.com/careers-in-medicine-if-you-dont-want-to-be-a-doctor/)
 - [7 Ways to Say No to Your Boss ...](https://lifestyle.allwomenstalk.com/ways-to-say-no-to-your-boss/)
 - [7 Effective Ways to Get a Raise at Work ...](https://allwomenstalk.com/7-effective-ways-to-get-a-raise-at-work/)
 

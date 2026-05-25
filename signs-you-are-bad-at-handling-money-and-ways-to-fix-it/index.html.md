@@ -44,14 +44,14 @@ Nobody's born knowing how to manage their money, but through trial and error you
 
 - [7 steps to achieve financial freedom](https://money.allwomenstalk.com/the-steps-to-being-financially-free/)
 - [stretch a dollar](https://money.allwomenstalk.com/ways-to-stretch-the-dollar-when-raising-children-on-your-own/)
-- [funny credit card design](https://money.allwomenstalk.com/you-might-prefer-cash-but-heres-times-when-its-better-to-use-credit/)
-- [teaching credit cards to high school students](https://money.allwomenstalk.com/reasons-you-need-to-get-a-credit-card-while-in-high-school/)
-- [girls in 20s](https://money.allwomenstalk.com/how-to-survive-your-20s-without-a-credit-card/)
-- [overspending friends](https://money.allwomenstalk.com/are-your-friends-making-you-overspend-heres-what-to-do/)
 - [lost wallet what to do](https://money.allwomenstalk.com/important-things-you-should-do-immediately-after-losing-your-wallet/)
+- [teaching credit cards to high school students](https://money.allwomenstalk.com/reasons-you-need-to-get-a-credit-card-while-in-high-school/)
 - [loose change money](https://money.allwomenstalk.com/loose-change-lying-around-heres-how-you-can-spend-it/)
 - [fights about money](https://love.allwomenstalk.com/ways-to-prevent-money-fights-with-your-partner/)
+- [overspending friends](https://money.allwomenstalk.com/are-your-friends-making-you-overspend-heres-what-to-do/)
+- [funny credit card design](https://money.allwomenstalk.com/you-might-prefer-cash-but-heres-times-when-its-better-to-use-credit/)
 - [how to be more disciplined with money](https://money.allwomenstalk.com/ways-to-be-financially-disciplined-at-a-young-age/)
+- [girls in 20s](https://money.allwomenstalk.com/how-to-survive-your-20s-without-a-credit-card/)
 - [7 Signs That You Are a Cheapskate ...](https://lifestyle.allwomenstalk.com/7-signs-that-you-are-a-cheapskate/)
 - [7 Steps to Improve Your Finances ...](https://allwomenstalk.com/7-steps-to-improve-your-finances/)
 

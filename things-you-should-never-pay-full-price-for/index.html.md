@@ -42,16 +42,16 @@ There is no shame in saving money, and with present economic conditions, saving 
 
 ## Related Posts
 
-- [10 First Date Mistakes to Avoid ...](https://love.allwomenstalk.com/first-date-mistakes-to-avoid/)
-- [bad dating advice](https://love.allwomenstalk.com/worst-dating-tips-you-should-definitely-ignore/)
-- [8 Foods Not to Eat on a First Date ...](https://health.allwomenstalk.com/foods-not-to-eat-on-a-first-date/)
-- [17 Things to Avoid during Pregnancy ...](https://vityle.com/things-to-avoid-during-pregnancy/)
-- [10 Critical Things You Should Not Tolerate ...](https://health.allwomenstalk.com/critical-things-you-should-not-tolerate/)
-- [7 Worst Allergens to Avoid ...](https://health.allwomenstalk.com/worst-allergens-to-avoid/)
-- [7 Words to Avoid in 2013 ...](https://lifestyle.allwomenstalk.com/words-to-avoid-in/)
-- [what are you looking to avoid in a career](https://lifestyle.allwomenstalk.com/career-mistakes-to-avoid/)
-- [17 Things You Should Definitely Stop Buying ...](https://baking.allwomenstalk.com/things-you-should-definitely-stop-buying/)
 - [7 friends photos](https://lifestyle.allwomenstalk.com/social-networking-habits-to-avoid/)
+- [7 Words to Avoid in 2013 ...](https://lifestyle.allwomenstalk.com/words-to-avoid-in/)
+- [10 Critical Things You Should Not Tolerate ...](https://health.allwomenstalk.com/critical-things-you-should-not-tolerate/)
+- [17 Things You Should Definitely Stop Buying ...](https://baking.allwomenstalk.com/things-you-should-definitely-stop-buying/)
+- [what are you looking to avoid in a career](https://lifestyle.allwomenstalk.com/career-mistakes-to-avoid/)
+- [8 Foods Not to Eat on a First Date ...](https://health.allwomenstalk.com/foods-not-to-eat-on-a-first-date/)
+- [7 Worst Allergens to Avoid ...](https://health.allwomenstalk.com/worst-allergens-to-avoid/)
+- [bad dating advice](https://love.allwomenstalk.com/worst-dating-tips-you-should-definitely-ignore/)
+- [10 First Date Mistakes to Avoid ...](https://love.allwomenstalk.com/first-date-mistakes-to-avoid/)
+- [17 Things to Avoid during Pregnancy ...](https://vityle.com/things-to-avoid-during-pregnancy/)
 - [7 Quintessential Things You Shouldnt Needlessly Ec...](https://money.allwomenstalk.com/quintessential-things-you-shouldnt-needlessly-economize-on/)
 - [7 Surprisingly Useful Tips to Frugal Shopping ...](https://money.allwomenstalk.com/surprisingly-useful-tips-to-frugal-shopping/)
 

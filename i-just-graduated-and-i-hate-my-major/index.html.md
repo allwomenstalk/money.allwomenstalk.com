@@ -46,16 +46,16 @@ Good luck!
 
 ## Related Posts
 
-- [studdit discount code](https://allwomenstalk.com/best-college-essay-writing-services-2022/)
-- [8 Free Online Courses ...](https://allwomenstalk.com/8-free-online-courses/)
-- [advantages of having a degree](https://allwomenstalk.com/benefits-of-completing-university-degree/)
-- [7 Ways to Encourage Good Study Habits ...](https://allwomenstalk.com/7-ways-to-encourage-good-study-habits/)
-- [can you fail the mcat](https://teen.allwomenstalk.com/how-to-prepare-for-the-mcat/)
-- [7 Back to School Solutions ...](https://allwomenstalk.com/7-back-to-school-solutions/)
-- [10 Study Habits to Start Now ...](https://allwomenstalk.com/10-study-habits-to-start-now/)
 - [ouachita baptist university football schedule 2023](https://lifestyle.allwomenstalk.com/the-pros-and-cons-of-living-on-campus-vs-off-campus/)
-- [college of temptation](https://lifestyle.allwomenstalk.com/how-to-resist-temptation-in-college/)
 - [10 Ways to Choose a College ...](https://allwomenstalk.com/10-ways-to-choose-a-college/)
+- [8 Free Online Courses ...](https://allwomenstalk.com/8-free-online-courses/)
+- [studdit discount code](https://allwomenstalk.com/best-college-essay-writing-services-2022/)
+- [7 Back to School Solutions ...](https://allwomenstalk.com/7-back-to-school-solutions/)
+- [college of temptation](https://lifestyle.allwomenstalk.com/how-to-resist-temptation-in-college/)
+- [can you fail the mcat](https://teen.allwomenstalk.com/how-to-prepare-for-the-mcat/)
+- [7 Ways to Encourage Good Study Habits ...](https://allwomenstalk.com/7-ways-to-encourage-good-study-habits/)
+- [10 Study Habits to Start Now ...](https://allwomenstalk.com/10-study-habits-to-start-now/)
+- [advantages of having a degree](https://allwomenstalk.com/benefits-of-completing-university-degree/)
 - [7 Reasons Teenagers Want to Drop out of School ...](https://allwomenstalk.com/7-reasons-teenagers-want-to-drop-out-of-school/)
 - [8 Reasons to Go to College ...](https://allwomenstalk.com/8-reasons-to-go-to-college/)
 

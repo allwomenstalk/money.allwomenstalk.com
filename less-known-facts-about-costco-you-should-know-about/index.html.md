@@ -44,16 +44,16 @@ None of these facts will prevent me from stepping my foot into Costco every week
 
 ## Related Posts
 
-- [why do giraffes sleep standing up](https://lifestyle.allwomenstalk.com/interesting-and-fun-facts-about-giraffes/)
-- [7 Shocking Truths about the Media That Will Blow Y...](https://lifestyle.allwomenstalk.com/shocking-truths-about-the-media-that-will-blow-your-mind/)
-- [funny facts about money](https://money.allwomenstalk.com/fascinating-facts-from-the-history-of-money/)
 - [does shailene woodley wear a wig in divergent](https://celebs.allwomenstalk.com/interesting-facts-about-shailene-woodley-youre-going-to-want-to-read/)
-- [interesting things about spiders](https://lifestyle.allwomenstalk.com/interesting-things-about-spiders-you-probably-dont-want-to-know/)
+- [7 Shocking Truths about the Media That Will Blow Y...](https://lifestyle.allwomenstalk.com/shocking-truths-about-the-media-that-will-blow-your-mind/)
 - [paris le stylo eye sunshine](https://lifestyle.allwomenstalk.com/facts-about-the-sun-that-are-amazing-interesting/)
-- [portia de rossi loreal](https://celebs.allwomenstalk.com/fun-facts-about-portia-de-rossi/)
-- [where did wawa get its name from](https://lifestyle.allwomenstalk.com/fun-facts-about-wawa-that-may-be-new-to-you/)
+- [why do giraffes sleep standing up](https://lifestyle.allwomenstalk.com/interesting-and-fun-facts-about-giraffes/)
+- [interesting things about spiders](https://lifestyle.allwomenstalk.com/interesting-things-about-spiders-you-probably-dont-want-to-know/)
 - [new girl fun facts](https://celebs.allwomenstalk.com/fun-facts-about-zooey-deschanel-that-will-make-you-love-her-even-more/)
 - [misconceptions about history](https://lifestyle.allwomenstalk.com/mind-blowing-historical-misconceptions-you-should-be-clear-on/)
+- [where did wawa get its name from](https://lifestyle.allwomenstalk.com/fun-facts-about-wawa-that-may-be-new-to-you/)
+- [portia de rossi loreal](https://celebs.allwomenstalk.com/fun-facts-about-portia-de-rossi/)
+- [funny facts about money](https://money.allwomenstalk.com/fascinating-facts-from-the-history-of-money/)
 - [7 Things You Should Know How to Cook ...](https://allwomenstalk.com/7-things-you-should-know-how-to-cook/)
 - [7 Did You Know Things You Should Know ...](https://allwomenstalk.com/7-did-you-know-things-you-should-know/)
 

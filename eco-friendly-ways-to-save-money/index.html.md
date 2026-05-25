@@ -130,16 +130,16 @@ Time to fess up girlies! How many of these eco-friendly ways to save money do yo
 
 ## Related Posts
 
-- [does dollar general sell honey](https://money.allwomenstalk.com/top-things-to-buy-at-dollar-general-to-save-time-and-money/)
-- [shopping rules](https://lifestyle.allwomenstalk.com/smart-things-to-do-before-you-go-shopping/)
-- [monthly food budget 2 adults](https://food.allwomenstalk.com/ways-to-make-a-realistic-food-budget/)
-- [practical money saving tips](https://money.allwomenstalk.com/practical-ways-to-save-money-more-efficiently/)
-- [turquoise kitchen appliances](https://money.allwomenstalk.com/fabulous-kitchen-appliances-every-woman-needs-to-save-money/)
 - [where can we get organic food](https://food.allwomenstalk.com/tips-for-eating-organic-on-a-budget/)
-- [whats a sample sale](https://fashion.allwomenstalk.com/helpful-tips-for-shopping-sample-sales/)
-- [lavish lifestyle examples](https://money.allwomenstalk.com/ways-to-save-money-and-still-live-a-lavish-lifestyle/)
 - [how to cut down on packaging waste](https://lifestyle.allwomenstalk.com/simple-ways-to-cut-down-on-packaging-when-you-shop/)
+- [practical money saving tips](https://money.allwomenstalk.com/practical-ways-to-save-money-more-efficiently/)
+- [monthly food budget 2 adults](https://food.allwomenstalk.com/ways-to-make-a-realistic-food-budget/)
+- [whats a sample sale](https://fashion.allwomenstalk.com/helpful-tips-for-shopping-sample-sales/)
+- [shopping rules](https://lifestyle.allwomenstalk.com/smart-things-to-do-before-you-go-shopping/)
 - [cheapest ingredients](https://food.allwomenstalk.com/budget-friendly-alternatives-to-expensive-ingredients/)
+- [does dollar general sell honey](https://money.allwomenstalk.com/top-things-to-buy-at-dollar-general-to-save-time-and-money/)
+- [lavish lifestyle examples](https://money.allwomenstalk.com/ways-to-save-money-and-still-live-a-lavish-lifestyle/)
+- [turquoise kitchen appliances](https://money.allwomenstalk.com/fabulous-kitchen-appliances-every-woman-needs-to-save-money/)
 - [10 Ways to save Money by Being Frugal ...](https://money.allwomenstalk.com/ways-to-save-money-by-being-frugal/)
 - [8 Smart Tips on How to save Money ...](https://money.allwomenstalk.com/smart-tips-on-how-to-save-money/)
 

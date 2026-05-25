@@ -42,16 +42,16 @@ How did you get ahead at work? What other tips can you share?
 
 ## Related Posts
 
+- [17 Interview Infographics to Help You Land Your Dr...](https://money.allwomenstalk.com/interview-infographics-to-help-you-land-your-dream-job/)
+- [how to ace a video interview](https://money.allwomenstalk.com/how-to-ace-a-video-interview/)
 - [17 Questions to Ask  Yourself when Trying to Find ...](https://money.allwomenstalk.com/questions-thatll-help-you-discover-your-dream-job/)
 - [How to Protect Your Heart if You Have a Job That R...](https://health.allwomenstalk.com/how-to-protect-your-heart-if-you-have-a-job-that-requires-a-lot-of-sitting/)
-- [This is How to Get a Better Work Life Balance ...](https://inspiration.allwomenstalk.com/this-is-how-to-get-a-better-work-life-balance/)
+- [Anyone Looking for a Job Will Laugh at These 7 Twe...](https://money.allwomenstalk.com/anyone-looking-for-a-job-will-laugh-at-these-tweets/)
 - [top companies on linkedin](https://money.allwomenstalk.com/the-top-companies-to-work-for-according-to-linkedin/)
 - [Do These Things and Never Miss Another Deadline .....](https://lifestyle.allwomenstalk.com/do-these-things-and-never-miss-another-deadline/)
-- [17 Interview Infographics to Help You Land Your Dr...](https://money.allwomenstalk.com/interview-infographics-to-help-you-land-your-dream-job/)
+- [This is How to Get a Better Work Life Balance ...](https://inspiration.allwomenstalk.com/this-is-how-to-get-a-better-work-life-balance/)
 - [Ways to Boost Your Confidence before an Interview ...](https://money.allwomenstalk.com/ways-to-boost-your-confidence-before-an-interview/)
 - [17 Mixed up Feelings We All Experience when Job Hu...](https://funny.allwomenstalk.com/feelings-youll-have-when-on-a-job-hunt/)
-- [how to ace a video interview](https://money.allwomenstalk.com/how-to-ace-a-video-interview/)
-- [Anyone Looking for a Job Will Laugh at These 7 Twe...](https://money.allwomenstalk.com/anyone-looking-for-a-job-will-laugh-at-these-tweets/)
 - [7 Effective Ways to Get a Raise at Work ...](https://allwomenstalk.com/7-effective-ways-to-get-a-raise-at-work/)
 - [7 Ways to Be More Productive at Work ...](https://money.allwomenstalk.com/ways-to-be-more-productive-at-work/)
 

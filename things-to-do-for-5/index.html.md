@@ -47,16 +47,16 @@ Top Image Source: [fashionmodeldirectory.com](https://www.fashionmodeldirectory.
 
 ## Related Posts
 
-- [things to do when bkred](https://lifestyle.allwomenstalk.com/fun-thing-to-do-with-the-girls/)
 - [stylish laptop dpz](https://lifestyle.allwomenstalk.com/best-websites-to-procrastinate-with/)
-- [college coed parties](https://wedding.allwomenstalk.com/fun-ideas-for-a-co-ed-bachelorette-party/)
-- [things that are spontaneous](https://lifestyle.allwomenstalk.com/fun-spontaneous-things-to-do-as-an-adult/)
 - [how much does it cost to throw a house party](https://parenting.allwomenstalk.com/ways-to-throw-a-teenage-party-on-a-budget/)
-- [green items for kids](https://parenting.allwomenstalk.com/fun-green-activities-to-do-with-the-kids/)
-- [unique frat party themes](https://lifestyle.allwomenstalk.com/unique-college-party-ideas/)
-- [ideas first date](https://love.allwomenstalk.com/fun-first-date-ideas/)
-- [how to make money weekends](https://money.allwomenstalk.com/ways-for-teenagers-to-make-extra-cash-on-the-weekends/)
 - [theme party for kids](https://lifestyle.allwomenstalk.com/fun-kids-birthday-party-themes/)
+- [things to do when bkred](https://lifestyle.allwomenstalk.com/fun-thing-to-do-with-the-girls/)
+- [college coed parties](https://wedding.allwomenstalk.com/fun-ideas-for-a-co-ed-bachelorette-party/)
+- [green items for kids](https://parenting.allwomenstalk.com/fun-green-activities-to-do-with-the-kids/)
+- [ideas first date](https://love.allwomenstalk.com/fun-first-date-ideas/)
+- [things that are spontaneous](https://lifestyle.allwomenstalk.com/fun-spontaneous-things-to-do-as-an-adult/)
+- [unique frat party themes](https://lifestyle.allwomenstalk.com/unique-college-party-ideas/)
+- [how to make money weekends](https://money.allwomenstalk.com/ways-for-teenagers-to-make-extra-cash-on-the-weekends/)
 - [10 Ways to Spend 1 around the World ...](https://travel.allwomenstalk.com/ways-to-spend-1-around-the-world/)
 - [10 Easy Ways to save up to 500 This Month ...](https://allwomenstalk.com/10-easy-ways-to-save-up-to-500-this-month/)
 

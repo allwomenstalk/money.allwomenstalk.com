@@ -43,15 +43,15 @@ Asking yourself these basic seven questions will not only determine whether you 
 ## Related Posts
 
 - [having rich friends](https://money.allwomenstalk.com/things-your-rich-friends-wont-tell-you/)
+- [ways to increase your credit rating](https://money.allwomenstalk.com/ways-to-improve-your-credit-rating/)
 - [7 reasons to check your credit report](https://money.allwomenstalk.com/excellent-reasons-to-check-your-credit-today/)
-- [what they dont teach you about money](https://money.allwomenstalk.com/things-your-parents-didnt-teach-you-about-money/)
 - [how to separate business and personal finances](https://money.allwomenstalk.com/ways-to-run-your-personal-finances-like-a-business/)
 - [why do i live paycheck to paycheck](https://money.allwomenstalk.com/reasons-why-youll-always-live-paycheck-to-paycheck/)
-- [ways to confess](https://money.allwomenstalk.com/ways-to-confess-money-problems-to-your-partner/)
-- [ways to increase your credit rating](https://money.allwomenstalk.com/ways-to-improve-your-credit-rating/)
-- [personal loan mistakes](https://money.allwomenstalk.com/common-loans-mistakes-you-should-not-make/)
 - [excuses to get money from parents](https://money.allwomenstalk.com/bad-excuses-that-can-wreck-your-finances/)
+- [what they dont teach you about money](https://money.allwomenstalk.com/things-your-parents-didnt-teach-you-about-money/)
+- [personal loan mistakes](https://money.allwomenstalk.com/common-loans-mistakes-you-should-not-make/)
 - [homebudget with sync](https://apps.allwomenstalk.com/fantastic-apps-for-personal-finance-and-budgeting/)
+- [ways to confess](https://money.allwomenstalk.com/ways-to-confess-money-problems-to-your-partner/)
 - [7 Essential Credit Management Rules for Young Cred...](https://money.allwomenstalk.com/essential-credit-management-rules-for-young-credit-card-holders/)
 - [7 Essential Factors to Consider before Making Thos...](https://money.allwomenstalk.com/essential-factors-to-consider-before-making-those-hefty-balance-transfers/)
 

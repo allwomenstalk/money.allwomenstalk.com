@@ -58,16 +58,16 @@ What do you think? Do any of these surprise you? Do you have ambitions to be a b
 
 ## Related Posts
 
-- [emily osment plastic surgery](https://celebs.allwomenstalk.com/celebrities-who-look-like-other-celebrities-see-it-to-believe-it/)
-- [alexsandra wright son](https://celebs.allwomenstalk.com/surprising-celebrity-men-whove-fathered-a-love-child/)
-- [celebrities who lost it all to drugs](https://celebs.allwomenstalk.com/celebrities-that-turned-their-life-around-after-using-drugs/)
+- [celebrities crop top](https://celebs.allwomenstalk.com/fabulous-celebrities-wearing-crop-tops-and-rocking-it/)
 - [14 year old actresses female](https://celebs.allwomenstalk.com/celebrities-who-starred-in-commercials-before-they-were-famous/)
+- [alexsandra wright son](https://celebs.allwomenstalk.com/surprising-celebrity-men-whove-fathered-a-love-child/)
+- [emily osment plastic surgery](https://celebs.allwomenstalk.com/celebrities-who-look-like-other-celebrities-see-it-to-believe-it/)
+- [top celebrity endorsements](https://celebs.allwomenstalk.com/of-the-biggest-celebrity-endorsement-deals-of-all-time/)
 - [blonde male actors](https://movies.allwomenstalk.com/top-actors-with-oh-so-kissable-lips/)
+- [celebrities who lost it all to drugs](https://celebs.allwomenstalk.com/celebrities-that-turned-their-life-around-after-using-drugs/)
 - [tabloid celebrities](https://celebs.allwomenstalk.com/of-our-favorite-celebs-that-are-always-in-the-tabloids/)
 - [celebrity couples who met on set](https://celebs.allwomenstalk.com/super-adorable-celebrity-couples-that-met-on-set/)
-- [celebrities crop top](https://celebs.allwomenstalk.com/fabulous-celebrities-wearing-crop-tops-and-rocking-it/)
 - [famous people tweets](https://celebs.allwomenstalk.com/celebrities-who-are-known-to-tweet-back-their-followers/)
-- [top celebrity endorsements](https://celebs.allwomenstalk.com/of-the-biggest-celebrity-endorsement-deals-of-all-time/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
 

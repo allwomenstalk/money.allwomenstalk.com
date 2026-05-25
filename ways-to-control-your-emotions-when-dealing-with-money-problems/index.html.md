@@ -42,16 +42,16 @@ It can be difficult to control your emotions when dealing with money problems. A
 
 ## Related Posts
 
-- [how to be an attitude girl](https://inspiration.allwomenstalk.com/empowering-attitudes-every-girl-should-have/)
-- [things people love about fall](https://lifestyle.allwomenstalk.com/things-us-girls-love-about-autumn/)
-- [life lessons song](https://music.allwomenstalk.com/lessons-for-women-from-colbie-caillats-try/)
-- [its hard to be a woman](https://funny.allwomenstalk.com/relatable-jokes-about-how-difficult-it-is-to-be-a-woman/)
-- [raising girls](https://parenting.allwomenstalk.com/things-you-need-to-know-about-raising-girls/)
-- [7 Things You Shouldnt Be Ashamed of as a Woman ...](https://inspiration.allwomenstalk.com/things-you-shouldnt-be-ashamed-of-as-a-woman/)
 - [being the only girl with brothers quotes](https://lifestyle.allwomenstalk.com/things-you-can-get-away-with-as-the-only-girl/)
-- [but for girls](https://funny.allwomenstalk.com/sensational-research-all-girls-with-big-derriers-must-read-now/)
 - [girls should be](https://lifestyle.allwomenstalk.com/things-a-girl-should-carry-with-her-at-all-times/)
 - [why friendsgiving](https://lifestyle.allwomenstalk.com/why-friendsgiving-is-way-better-than-thanksgiving/)
+- [its hard to be a woman](https://funny.allwomenstalk.com/relatable-jokes-about-how-difficult-it-is-to-be-a-woman/)
+- [how to be an attitude girl](https://inspiration.allwomenstalk.com/empowering-attitudes-every-girl-should-have/)
+- [7 Things You Shouldnt Be Ashamed of as a Woman ...](https://inspiration.allwomenstalk.com/things-you-shouldnt-be-ashamed-of-as-a-woman/)
+- [life lessons song](https://music.allwomenstalk.com/lessons-for-women-from-colbie-caillats-try/)
+- [but for girls](https://funny.allwomenstalk.com/sensational-research-all-girls-with-big-derriers-must-read-now/)
+- [raising girls](https://parenting.allwomenstalk.com/things-you-need-to-know-about-raising-girls/)
+- [things people love about fall](https://lifestyle.allwomenstalk.com/things-us-girls-love-about-autumn/)
 - [7 Ways to Deal with Anger ...](https://allwomenstalk.com/7-ways-to-deal-with-anger/)
 - [7 Tips on Dealing with Controlling Parents ...](https://allwomenstalk.com/7-tips-on-dealing-with-controlling-parents/)
 

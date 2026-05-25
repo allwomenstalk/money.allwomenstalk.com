@@ -70,16 +70,16 @@ Saving money however I can is something I’m all for. Over the years, shopping 
 
 ## Related Posts
 
-- [practical money saving tips](https://money.allwomenstalk.com/practical-ways-to-save-money-more-efficiently/)
-- [lavish lifestyle examples](https://money.allwomenstalk.com/ways-to-save-money-and-still-live-a-lavish-lifestyle/)
-- [where to spend long weekend](https://money.allwomenstalk.com/ways-to-afford-a-weekend-getaway-when-youre-broke/)
 - [7 Stupid Things You Spend Money on ...](https://money.allwomenstalk.com/stupid-things-you-spend-money-on/)
-- [how grocery stores trick you](https://money.allwomenstalk.com/ways-grocery-stores-trick-you-into-spending-more/)
-- [cheapest ingredients](https://food.allwomenstalk.com/budget-friendly-alternatives-to-expensive-ingredients/)
 - [shopping rules](https://lifestyle.allwomenstalk.com/smart-things-to-do-before-you-go-shopping/)
+- [how grocery stores trick you](https://money.allwomenstalk.com/ways-grocery-stores-trick-you-into-spending-more/)
 - [monthly food budget 2 adults](https://food.allwomenstalk.com/ways-to-make-a-realistic-food-budget/)
 - [turquoise kitchen appliances](https://money.allwomenstalk.com/fabulous-kitchen-appliances-every-woman-needs-to-save-money/)
+- [lavish lifestyle examples](https://money.allwomenstalk.com/ways-to-save-money-and-still-live-a-lavish-lifestyle/)
 - [how to cut down on packaging waste](https://lifestyle.allwomenstalk.com/simple-ways-to-cut-down-on-packaging-when-you-shop/)
+- [cheapest ingredients](https://food.allwomenstalk.com/budget-friendly-alternatives-to-expensive-ingredients/)
+- [where to spend long weekend](https://money.allwomenstalk.com/ways-to-afford-a-weekend-getaway-when-youre-broke/)
+- [practical money saving tips](https://money.allwomenstalk.com/practical-ways-to-save-money-more-efficiently/)
 - [10 Things You Should Buy at Garage Yard Sales ...](https://money.allwomenstalk.com/things-you-should-buy-at-garage-yard-sales/)
 - [8 Astonishingly Easy Ways to save Money This Holid...](https://money.allwomenstalk.com/astonishingly-easy-ways-to-save-money-this-holiday-season/)
 

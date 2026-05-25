@@ -42,15 +42,15 @@ Our credit cards say a lot about our spending habits and credit lifestyle. In fa
 
 ## Related Posts
 
-- [how to live on half your income](https://money.allwomenstalk.com/single-here-are-ways-to-live-off-half-your-income/)
-- [metal money boxes](https://money.allwomenstalk.com/money-boxes-to-keep-your-pennies-safe/)
-- [why debt is bad](https://money.allwomenstalk.com/reasons-why-debt-is-bad-for-you/)
-- [fix inherit amazing](https://money.allwomenstalk.com/ways-to-improve-your-life-when-you-inherit-money/)
-- [ways to be proactive](https://money.allwomenstalk.com/ways-to-be-proactive-with-your-money/)
-- [maxed out credit card outfit](https://money.allwomenstalk.com/types-of-people-who-should-avoid-credit-cards/)
-- [depressed because of money](https://money.allwomenstalk.com/tips-to-stop-feeling-hopeless-about-money/)
 - [credit knowledge experts](https://money.allwomenstalk.com/clueless-about-credit-tips-to-boost-your-knowledge/)
+- [maxed out credit card outfit](https://money.allwomenstalk.com/types-of-people-who-should-avoid-credit-cards/)
+- [why debt is bad](https://money.allwomenstalk.com/reasons-why-debt-is-bad-for-you/)
 - [how to get your credit to 800](https://money.allwomenstalk.com/of-the-best-ways-to-achieve-an-800-credit-score/)
+- [how to live on half your income](https://money.allwomenstalk.com/single-here-are-ways-to-live-off-half-your-income/)
+- [fix inherit amazing](https://money.allwomenstalk.com/ways-to-improve-your-life-when-you-inherit-money/)
+- [depressed because of money](https://money.allwomenstalk.com/tips-to-stop-feeling-hopeless-about-money/)
+- [ways to be proactive](https://money.allwomenstalk.com/ways-to-be-proactive-with-your-money/)
+- [metal money boxes](https://money.allwomenstalk.com/money-boxes-to-keep-your-pennies-safe/)
 - [is being frugal a bad thing](https://money.allwomenstalk.com/great-reasons-you-shouldnt-be-ashamed-of-frugality/)
 - [7 Sensible Ways to Manage Your Credit Card ...](https://lifestyle.allwomenstalk.com/sensible-ways-to-manage-your-credit-card/)
 - [8 Tips for Sensible Credit Card Use ...](https://allwomenstalk.com/8-tips-for-sensible-credit-card-use/)

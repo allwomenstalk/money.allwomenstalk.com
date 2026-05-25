@@ -42,16 +42,16 @@ So, what are your long-term goals? Whether you're saving up to buy a house, plan
 
 ## Related Posts
 
-- [ways to get ahead in life](https://inspiration.allwomenstalk.com/ways-to-get-ahead-in-life/)
-- [changing from one thing to another](https://inspiration.allwomenstalk.com/ways-to-change-in-life/)
-- [what to look forward to in life](https://inspiration.allwomenstalk.com/moments-to-look-forward-to-thatll-help-you-hold-on-for-another-year/)
-- [self esteem for girls activities](https://lifestyle.allwomenstalk.com/great-social-activities-for-people-with-low-self-esteem/)
-- [i compare myself to a glass](https://inspiration.allwomenstalk.com/ways-to-see-the-glass-half-full/)
 - [word for being happy for someone elses success](https://inspiration.allwomenstalk.com/simple-ways-to-bring-joy-to-others/)
-- [live the life to its fullest](https://lifestyle.allwomenstalk.com/rules-to-follow-to-live-life-to-the-fullest/)
-- [make peace with the woman you once were](https://inspiration.allwomenstalk.com/ways-to-make-peace-with-whom-you-are/)
-- [what do people think about all day](https://inspiration.allwomenstalk.com/positive-thoughts-to-think-all-day-every-day/)
+- [i compare myself to a glass](https://inspiration.allwomenstalk.com/ways-to-see-the-glass-half-full/)
+- [what to look forward to in life](https://inspiration.allwomenstalk.com/moments-to-look-forward-to-thatll-help-you-hold-on-for-another-year/)
 - [how can you improve your community](https://inspiration.allwomenstalk.com/ways-to-contribute-to-your-community/)
+- [ways to get ahead in life](https://inspiration.allwomenstalk.com/ways-to-get-ahead-in-life/)
+- [live the life to its fullest](https://lifestyle.allwomenstalk.com/rules-to-follow-to-live-life-to-the-fullest/)
+- [changing from one thing to another](https://inspiration.allwomenstalk.com/ways-to-change-in-life/)
+- [what do people think about all day](https://inspiration.allwomenstalk.com/positive-thoughts-to-think-all-day-every-day/)
+- [self esteem for girls activities](https://lifestyle.allwomenstalk.com/great-social-activities-for-people-with-low-self-esteem/)
+- [make peace with the woman you once were](https://inspiration.allwomenstalk.com/ways-to-make-peace-with-whom-you-are/)
 - [7 Ways to Enjoy Life More ...](https://allwomenstalk.com/7-ways-to-enjoy-life-more/)
 - [7 Brilliant Strategies to Live Life the Way You Wa...](https://allwomenstalk.com/7-brilliant-strategies-to-live-life-the-way-you-want/)
 

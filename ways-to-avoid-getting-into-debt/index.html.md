@@ -46,16 +46,16 @@ So as you see, there are lots of smart ways to avoid debt. Being in debt can be 
 
 ## Related Posts
 
-- [how to make money as a stay at home mother](https://money.allwomenstalk.com/small-time-money-makin-ideas-for-the-sahm-stay-at-home-mom/)
-- [where would you feel richer](https://money.allwomenstalk.com/financial-nightmares-thatll-make-you-feel-richer/)
-- [starting a savings account](https://money.allwomenstalk.com/tips-for-starting-a-savings-account/)
-- [how to secure your bank account](https://money.allwomenstalk.com/ways-to-safeguard-your-bank-accounts/)
 - [what small business can i start with no money](https://money.allwomenstalk.com/businesses-you-can-start-with-little-or-no-money/)
-- [who looks at your credit report and why](https://money.allwomenstalk.com/things-your-credit-report-reveals-about-you/)
 - [programs that teach money to kids](https://money.allwomenstalk.com/websites-to-teach-kids-about-money/)
 - [reasons to keep cash](https://money.allwomenstalk.com/reasons-to-carry-cash-with-you/)
 - [why would you refinance a home loan](https://money.allwomenstalk.com/reasons-to-refinance-your-mortgage-loan/)
+- [who looks at your credit report and why](https://money.allwomenstalk.com/things-your-credit-report-reveals-about-you/)
 - [how to avoid getting into debt](https://money.allwomenstalk.com/top-ways-to-avoid-getting-into-debt/)
+- [starting a savings account](https://money.allwomenstalk.com/tips-for-starting-a-savings-account/)
+- [where would you feel richer](https://money.allwomenstalk.com/financial-nightmares-thatll-make-you-feel-richer/)
+- [how to secure your bank account](https://money.allwomenstalk.com/ways-to-safeguard-your-bank-accounts/)
+- [how to make money as a stay at home mother](https://money.allwomenstalk.com/small-time-money-makin-ideas-for-the-sahm-stay-at-home-mom/)
 - [8 Ways to Avoid Financial Scams and Fraud ...](https://money.allwomenstalk.com/ways-to-avoid-financial-scams-and-fraud/)
 - [7 Best Ways to Get out of Debt ...](https://money.allwomenstalk.com/best-ways-to-get-out-of-debt/)
 

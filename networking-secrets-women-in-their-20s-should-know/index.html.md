@@ -51,15 +51,15 @@ You’ll be surprised how much you’ll learn and blossom personally in the proc
 ## Related Posts
 
 - [ms moem real name](https://inspiration.allwomenstalk.com/a-simple-truth-by-ms-moem/)
-- [things to look for in a person](https://inspiration.allwomenstalk.com/qualities-to-look-for-in-people/)
-- [skills all adults should have](https://lifestyle.allwomenstalk.com/essential-social-skills-that-all-adults-should-have/)
 - [types of people in a class](https://books.allwomenstalk.com/types-of-people-in-a-creative-writing-class/)
-- [things to do alone in your 20s](https://lifestyle.allwomenstalk.com/things-you-should-do-alone-in-your-20s/)
+- [authentic traits](https://inspiration.allwomenstalk.com/traits-of-authentic-people/)
+- [when times are tough](https://inspiration.allwomenstalk.com/things-to-remember-when-times-are-tough/)
+- [things to look for in a person](https://inspiration.allwomenstalk.com/qualities-to-look-for-in-people/)
 - [social media person](https://apps.allwomenstalk.com/great-ways-social-media-makes-you-a-better-person/)
 - [things you will regret later in life](https://lifestyle.allwomenstalk.com/things-youll-regret-in-your-30s/)
 - [erin hanson human](https://inspiration.allwomenstalk.com/when-sadness-finds-you-by-erin-hanson/)
-- [when times are tough](https://inspiration.allwomenstalk.com/things-to-remember-when-times-are-tough/)
-- [authentic traits](https://inspiration.allwomenstalk.com/traits-of-authentic-people/)
+- [things to do alone in your 20s](https://lifestyle.allwomenstalk.com/things-you-should-do-alone-in-your-20s/)
+- [skills all adults should have](https://lifestyle.allwomenstalk.com/essential-social-skills-that-all-adults-should-have/)
 - [8 Vital Things Every Teenager Needs to Know ...](https://parenting.allwomenstalk.com/8-vital-things-every-teenager-needs-to-know/)
 - [10 Things Every Adult Should Know How to do ...](https://allwomenstalk.com/10-things-every-adult-should-know-how-to-do/)
 

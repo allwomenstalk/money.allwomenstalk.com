@@ -24,16 +24,16 @@ The Flamingo Mansion is the job site. It is a huge indoor-outdoor habitat built 
 
 ## Related Posts
 
-- [top island destinations in the world](https://travel.allwomenstalk.com/holidays-in-paradise-top-island-destinations-for/)
-- [best travel destinations for foodies](https://travel.allwomenstalk.com/fabulous-destinations-for-foodies/)
-- [soul mate search](https://travel.allwomenstalk.com/wonderful-places-to-find-your-soul-mate/)
-- [can you drink on st pete beach](https://travel.allwomenstalk.com/us-beaches-that-allow-alcohol/)
-- [safari island lombok](https://travel.allwomenstalk.com/must-do-experiences-in-lombok/)
-- [romantic amsterdam hotels](https://travel.allwomenstalk.com/the-most-romantic-hotels-in-the-world/)
+- [france off the beaten track](https://travel.allwomenstalk.com/beautiful-off-the-beaten-track-destinations-in-france/)
 - [cute fourth of july hairstyles](https://travel.allwomenstalk.com/best-beach-towns-to-celebrate-4th-of-july/)
 - [adventure holiday ideas for couples](https://travel.allwomenstalk.com/adventure-holiday-ideas-for-couples/)
+- [can you drink on st pete beach](https://travel.allwomenstalk.com/us-beaches-that-allow-alcohol/)
 - [foodie road trips](https://travel.allwomenstalk.com/road-trips-for-food-lovers/)
-- [france off the beaten track](https://travel.allwomenstalk.com/beautiful-off-the-beaten-track-destinations-in-france/)
+- [top island destinations in the world](https://travel.allwomenstalk.com/holidays-in-paradise-top-island-destinations-for/)
+- [soul mate search](https://travel.allwomenstalk.com/wonderful-places-to-find-your-soul-mate/)
+- [safari island lombok](https://travel.allwomenstalk.com/must-do-experiences-in-lombok/)
+- [romantic amsterdam hotels](https://travel.allwomenstalk.com/the-most-romantic-hotels-in-the-world/)
+- [best travel destinations for foodies](https://travel.allwomenstalk.com/fabulous-destinations-for-foodies/)
 - [9 Exotic Destinations to Hit ...](https://travel.allwomenstalk.com/exotic-destinations-to-hit/)
 - [7 Satisfying but Highly Dangerous Travel Jobs ...](https://travel.allwomenstalk.com/satisfying-but-highly-dangerous-travel-jobs/)
 

@@ -42,16 +42,16 @@ We all need financial help from time to time, and sometimes asking for a loan is
 
 ## Related Posts
 
-- [maxed out credit card outfit](https://money.allwomenstalk.com/types-of-people-who-should-avoid-credit-cards/)
-- [why credit matters](https://money.allwomenstalk.com/situations-when-your-credit-matters-the-most/)
 - [signs of a frugal person](https://money.allwomenstalk.com/obvious-signs-youre-becoming-less-frugal-with-your-money/)
+- [how to live on half your income](https://money.allwomenstalk.com/single-here-are-ways-to-live-off-half-your-income/)
+- [maxed out credit card outfit](https://money.allwomenstalk.com/types-of-people-who-should-avoid-credit-cards/)
 - [fix inherit amazing](https://money.allwomenstalk.com/ways-to-improve-your-life-when-you-inherit-money/)
+- [why credit matters](https://money.allwomenstalk.com/situations-when-your-credit-matters-the-most/)
+- [spending personality](https://money.allwomenstalk.com/things-your-credit-card-says-about-your-spending-personality/)
 - [credit knowledge experts](https://money.allwomenstalk.com/clueless-about-credit-tips-to-boost-your-knowledge/)
 - [cash money  marvelous](https://money.allwomenstalk.com/money-mantras-you-need-to-adopt-in/)
-- [why debt is bad](https://money.allwomenstalk.com/reasons-why-debt-is-bad-for-you/)
 - [once you know how to ____________ money your money...](https://money.allwomenstalk.com/ways-to-stop-letting-money-control-your-life/)
-- [spending personality](https://money.allwomenstalk.com/things-your-credit-card-says-about-your-spending-personality/)
-- [how to live on half your income](https://money.allwomenstalk.com/single-here-are-ways-to-live-off-half-your-income/)
+- [why debt is bad](https://money.allwomenstalk.com/reasons-why-debt-is-bad-for-you/)
 - [7 Ways to Be Smart when Borrowing Money for Colleg...](https://money.allwomenstalk.com/ways-to-be-smart-when-borrowing-money-for-college/)
 - [7 Steps to Improve Your Finances ...](https://allwomenstalk.com/7-steps-to-improve-your-finances/)
 

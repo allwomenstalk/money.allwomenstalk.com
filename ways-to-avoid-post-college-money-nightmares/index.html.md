@@ -42,16 +42,16 @@ Even if you're fortunate enough to find a job right after college, bad money mov
 
 ## Related Posts
 
-- [7 Common Excuses to Avoid Financial Responsibility...](https://money.allwomenstalk.com/common-excuses-to-avoid-financial-responsibility/)
-- [how do i know if i have a joint bank account](https://money.allwomenstalk.com/signs-youre-ready-for-a-joint-bank-account/)
-- [7 of the Most Harmful Money Beliefs ...](https://money.allwomenstalk.com/of-the-most-harmful-money-beliefs/)
-- [money saving resolution](https://money.allwomenstalk.com/money-resolutions-every-couple-should-make/)
 - [financial roller coaster](https://money.allwomenstalk.com/ways-to-get-off-the-freelance-financial-roller-coaster/)
-- [7 Ways to Stop Your Spouses Debt from Ruining Your...](https://money.allwomenstalk.com/ways-to-stop-your-spouses-debt-from-ruining-your-relationship/)
+- [money saving resolution](https://money.allwomenstalk.com/money-resolutions-every-couple-should-make/)
 - [Returning to School 7 Ways to Prepare Your Money ....](https://money.allwomenstalk.com/returning-to-school-ways-to-prepare-your-money/)
-- [7 Steps to Take if You Cant Pay Your Bills ...](https://money.allwomenstalk.com/steps-to-take-if-you-cant-pay-your-bills/)
 - [7 Reasons to Say Yes to a New Credit Card ...](https://money.allwomenstalk.com/reasons-to-say-yes-to-a-new-credit-card/)
+- [7 of the Most Harmful Money Beliefs ...](https://money.allwomenstalk.com/of-the-most-harmful-money-beliefs/)
 - [Is Debt Making You Sick 7 Ways to Cope ...](https://money.allwomenstalk.com/is-debt-making-you-sick-ways-to-cope/)
+- [7 Steps to Take if You Cant Pay Your Bills ...](https://money.allwomenstalk.com/steps-to-take-if-you-cant-pay-your-bills/)
+- [7 Common Excuses to Avoid Financial Responsibility...](https://money.allwomenstalk.com/common-excuses-to-avoid-financial-responsibility/)
+- [7 Ways to Stop Your Spouses Debt from Ruining Your...](https://money.allwomenstalk.com/ways-to-stop-your-spouses-debt-from-ruining-your-relationship/)
+- [how do i know if i have a joint bank account](https://money.allwomenstalk.com/signs-youre-ready-for-a-joint-bank-account/)
 - [7 Ways to Cut the Cost of College ...](https://money.allwomenstalk.com/ways-to-cut-the-cost-of-college/)
 - [7 Ways to Be Smart when Borrowing Money for Colleg...](https://money.allwomenstalk.com/ways-to-be-smart-when-borrowing-money-for-college/)
 

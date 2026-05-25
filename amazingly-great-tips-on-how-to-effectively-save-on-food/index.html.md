@@ -42,16 +42,16 @@ Now you know how to save on food! Hurray! But, since I’m sure that, when it co
 
 ## Related Posts
 
-- [how to become more frugal](https://money.allwomenstalk.com/more-eminently-sensible-ways-to-save-money-by-being-frugal/)
-- [8 Money Saving Tricks for 2012 ...](https://money.allwomenstalk.com/money-saving-tricks-for/)
+- [8 Ways to save Money on Food ...](https://money.allwomenstalk.com/ways-to-save-money-on-food/)
 - [8 Extreme Couponing Tips ...](https://money.allwomenstalk.com/extreme-couponing-tips/)
-- [spending money shopping](https://money.allwomenstalk.com/ways-to-reduce-your-spending-while-shopping/)
+- [how to become more frugal](https://money.allwomenstalk.com/more-eminently-sensible-ways-to-save-money-by-being-frugal/)
 - [7 Ways to save Money on Eating out ...](https://money.allwomenstalk.com/ways-to-save-money-on-eating-out/)
+- [9 Ways to save on Groceries ...](https://money.allwomenstalk.com/ways-to-save-on-groceries/)
+- [8 Money Saving Tricks for 2012 ...](https://money.allwomenstalk.com/money-saving-tricks-for/)
 - [7 Ways to save Money on Gas ...](https://money.allwomenstalk.com/ways-to-save-money-on-gas/)
+- [spending money shopping](https://money.allwomenstalk.com/ways-to-reduce-your-spending-while-shopping/)
 - [save on makeup](https://money.allwomenstalk.com/ways-to-save-money-on-cosmetics/)
 - [10 Ways to save Money by Being Frugal ...](https://money.allwomenstalk.com/ways-to-save-money-by-being-frugal/)
-- [9 Ways to save on Groceries ...](https://money.allwomenstalk.com/ways-to-save-on-groceries/)
-- [8 Ways to save Money on Food ...](https://money.allwomenstalk.com/ways-to-save-money-on-food/)
 - [10 Ways to save Money at the Grocery Store ...](https://allwomenstalk.com/10-ways-to-save-money-at-the-grocery-store/)
 - [7 Ways to save Money Eating out ...](https://allwomenstalk.com/7-ways-to-save-money-eating-out/)
 

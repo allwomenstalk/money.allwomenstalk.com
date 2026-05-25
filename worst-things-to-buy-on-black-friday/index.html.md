@@ -42,16 +42,16 @@ If you’re going to wake up early on Black Friday to get a deal, make it worth 
 
 ## Related Posts
 
-- [results oriented resume](https://lifestyle.allwomenstalk.com/words-to-eliminate-from-your-resume/)
-- [piercing vocabulary](https://lifestyle.allwomenstalk.com/words-you-should-erase-from-your-vocabulary/)
-- [shortcuts in life](https://inspiration.allwomenstalk.com/shortcuts-you-will-regret-taking-in-life/)
-- [happiness is not something far away and unattainab...](https://inspiration.allwomenstalk.com/common-beliefs-of-unhappy-people-that-you-should-stay-far-away-from/)
-- [9 Things That Piss off Your Photographer ...](https://lifestyle.allwomenstalk.com/things-that-piss-off-your-photographer/)
 - [movies about flirting](https://love.allwomenstalk.com/worst-flirting-moves-that-just-dont-work-in-real-life/)
-- [bad things to do to others](https://lifestyle.allwomenstalk.com/worst-things-people-do-when-trying-to-help-others/)
+- [9 Things That Piss off Your Photographer ...](https://lifestyle.allwomenstalk.com/things-that-piss-off-your-photographer/)
 - [what not to do at school](https://teen.allwomenstalk.com/things-to-avoid-doing-in-high-school-under-all-circumstances/)
-- [my boyfriend reminds me of my brother](https://love.allwomenstalk.com/things-guys-hate-to-hear-from-their-girlfriends/)
 - [kissing mistakes](https://love.allwomenstalk.com/mistakes-people-can-make-while-kissing/)
+- [shortcuts in life](https://inspiration.allwomenstalk.com/shortcuts-you-will-regret-taking-in-life/)
+- [results oriented resume](https://lifestyle.allwomenstalk.com/words-to-eliminate-from-your-resume/)
+- [my boyfriend reminds me of my brother](https://love.allwomenstalk.com/things-guys-hate-to-hear-from-their-girlfriends/)
+- [piercing vocabulary](https://lifestyle.allwomenstalk.com/words-you-should-erase-from-your-vocabulary/)
+- [happiness is not something far away and unattainab...](https://inspiration.allwomenstalk.com/common-beliefs-of-unhappy-people-that-you-should-stay-far-away-from/)
+- [bad things to do to others](https://lifestyle.allwomenstalk.com/worst-things-people-do-when-trying-to-help-others/)
 - [10 Things to Absolutely and Definitely Not Buy dur...](https://money.allwomenstalk.com/things-to-absolutely-and-definitely-not-buy-during-the-holidays/)
 - [10 Ways to save on Holiday Shopping ...](https://lifestyle.allwomenstalk.com/ways-to-save-on-holiday-shopping/)
 

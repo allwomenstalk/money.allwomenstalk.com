@@ -41,15 +41,15 @@ There’s no manual anywhere that says that you have to graduate at “this” t
 ## Related Posts
 
 - [Uncomfortable Things You Must Deal with Head on fo...](https://inspiration.allwomenstalk.com/uncomfortable-things-you-must-deal-with-head-on-for-a-comfortable-life/)
-- [Dont Take Your Second 2 and Third 3 Chance for Gra...](https://inspiration.allwomenstalk.com/dont-take-your-second-2-and-third-3-chance-for-granted/)
+- [Why Being a Geek Isnt a Bad Thing ...](https://inspiration.allwomenstalk.com/why-being-a-geek-isnt-a-bad-thing/)
 - [The Easiest Way Isnt Always the Easiest Way ...](https://inspiration.allwomenstalk.com/the-easiest-way-isnt-always-the-easiest-way/)
 - [Exceptional Things Mentally Strong People do ...](https://inspiration.allwomenstalk.com/exceptional-things-mentally-strong-people-do/)
+- [When  Not to Talk Yourself out of It ...](https://inspiration.allwomenstalk.com/when-not-to-talk-yourself-out-of-it/)
+- [pumpkin seeds quotes](https://inspiration.allwomenstalk.com/keep-the-faith-even-the-size-of-a-pumpkin-seed/)
 - [A Better Way to Look at Death ...](https://inspiration.allwomenstalk.com/a-better-way-to-look-at-death/)
 - [The Importance of a Support System when You Have a...](https://health.allwomenstalk.com/the-importance-of-a-support-system-when-you-have-a-mental-illness/)
-- [pumpkin seeds quotes](https://inspiration.allwomenstalk.com/keep-the-faith-even-the-size-of-a-pumpkin-seed/)
 - [Why Forgiveness is Good for You ...](https://inspiration.allwomenstalk.com/why-forgiveness-is-good-for-you/)
-- [When  Not to Talk Yourself out of It ...](https://inspiration.allwomenstalk.com/when-not-to-talk-yourself-out-of-it/)
-- [Why Being a Geek Isnt a Bad Thing ...](https://inspiration.allwomenstalk.com/why-being-a-geek-isnt-a-bad-thing/)
+- [Dont Take Your Second 2 and Third 3 Chance for Gra...](https://inspiration.allwomenstalk.com/dont-take-your-second-2-and-third-3-chance-for-granted/)
 - [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
 - [10 Ways to Help You Decide What You Want to do wit...](https://inspiration.allwomenstalk.com/ways-to-help-you-decide-what-you-want-to-do-with-your-life/)
 

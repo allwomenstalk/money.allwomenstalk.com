@@ -42,16 +42,16 @@ Saving money and building an emergency fund takes discipline and effort. However
 
 ## Related Posts
 
-- [myths about stds](https://health.allwomenstalk.com/common-myths-about-sexually-transmitted-diseases-and-infections/)
-- [smartphone negative effects](https://health.allwomenstalk.com/negative-effects-of-your-smart-phone-on-your-health/)
 - [how to educate yourself on politics](https://lifestyle.allwomenstalk.com/important-political-issues-you-need-to-educate-yourself-on/)
-- [multivitamin without titanium dioxide](https://health.allwomenstalk.com/toxic-ingredients-to-avoid-when-buying-supplements/)
-- [allvulvaarebeautiful](https://health.allwomenstalk.com/things-you-should-know-about-your-vagina/)
-- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
-- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
-- [cosmetic surgery abroad](https://beauty.allwomenstalk.com/essential-things-to-know-about-cosmetic-surgery-abroad/)
 - [bad things for your heart](https://health.allwomenstalk.com/bad-habits-that-could-damage-your-heart/)
+- [cosmetic surgery abroad](https://beauty.allwomenstalk.com/essential-things-to-know-about-cosmetic-surgery-abroad/)
+- [myths about stds](https://health.allwomenstalk.com/common-myths-about-sexually-transmitted-diseases-and-infections/)
 - [what to look for in a juicer](https://health.allwomenstalk.com/essential-things-to-consider-when-buying-a-juicer/)
+- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
+- [multivitamin without titanium dioxide](https://health.allwomenstalk.com/toxic-ingredients-to-avoid-when-buying-supplements/)
+- [smartphone negative effects](https://health.allwomenstalk.com/negative-effects-of-your-smart-phone-on-your-health/)
+- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
+- [allvulvaarebeautiful](https://health.allwomenstalk.com/things-you-should-know-about-your-vagina/)
 - [9 Reasons to Go to the Dentist ...](https://health.allwomenstalk.com/9-reasons-to-go-to-the-dentist/)
 - [7 Reasons Why Sleeping Early is Important ...](https://sleep.allwomenstalk.com/reasons-sleeping-early-is-important/)
 

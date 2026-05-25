@@ -42,16 +42,16 @@ Graduating college is a huge milestone, and as you enter the workforce you'll ne
 
 ## Related Posts
 
-- [ways to increase your credit rating](https://money.allwomenstalk.com/ways-to-improve-your-credit-rating/)
-- [credit card related questions](https://money.allwomenstalk.com/important-questions-to-ask-when-applying-for-a-credit-card/)
 - [how to gain knowledge in finance](https://money.allwomenstalk.com/best-ways-to-improve-your-financial-knowledge/)
-- [personal loan mistakes](https://money.allwomenstalk.com/common-loans-mistakes-you-should-not-make/)
-- [7 reasons to check your credit report](https://money.allwomenstalk.com/excellent-reasons-to-check-your-credit-today/)
-- [having rich friends](https://money.allwomenstalk.com/things-your-rich-friends-wont-tell-you/)
-- [ways to confess](https://money.allwomenstalk.com/ways-to-confess-money-problems-to-your-partner/)
+- [credit card related questions](https://money.allwomenstalk.com/important-questions-to-ask-when-applying-for-a-credit-card/)
 - [homebudget with sync](https://apps.allwomenstalk.com/fantastic-apps-for-personal-finance-and-budgeting/)
-- [excuses to get money from parents](https://money.allwomenstalk.com/bad-excuses-that-can-wreck-your-finances/)
+- [ways to confess](https://money.allwomenstalk.com/ways-to-confess-money-problems-to-your-partner/)
+- [7 reasons to check your credit report](https://money.allwomenstalk.com/excellent-reasons-to-check-your-credit-today/)
 - [why do i live paycheck to paycheck](https://money.allwomenstalk.com/reasons-why-youll-always-live-paycheck-to-paycheck/)
+- [having rich friends](https://money.allwomenstalk.com/things-your-rich-friends-wont-tell-you/)
+- [excuses to get money from parents](https://money.allwomenstalk.com/bad-excuses-that-can-wreck-your-finances/)
+- [personal loan mistakes](https://money.allwomenstalk.com/common-loans-mistakes-you-should-not-make/)
+- [ways to increase your credit rating](https://money.allwomenstalk.com/ways-to-improve-your-credit-rating/)
 - [7 Budgeting Tips to save You Money ...](https://money.allwomenstalk.com/budgeting-tips-to-save-you-money/)
 - [7 Steps to Improve Your Finances ...](https://allwomenstalk.com/7-steps-to-improve-your-finances/)
 

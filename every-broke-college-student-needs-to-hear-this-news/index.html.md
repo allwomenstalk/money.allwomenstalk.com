@@ -22,16 +22,16 @@ Do you think that the price of college should be lowered?
 
 ## Related Posts
 
-- [last minute tweaks](https://teen.allwomenstalk.com/last-minute-tweaks-to-make-to-your-college-application/)
-- [things found outside the classroom](https://lifestyle.allwomenstalk.com/things-youll-learn-in-college-that-wont-be-taught-in-class/)
-- [making friends in med school](https://lifestyle.allwomenstalk.com/every-med-school-student-has-dealt-with-these-things/)
-- [travel tips for students](https://travel.allwomenstalk.com/you-have-to-see-these-top-travel-tips-for-college-students/)
 - [homemade snacks for college students](https://food.allwomenstalk.com/how-to-turn-college-food-into-actual-edible-food/)
 - [thatll be 8 dollars gif](https://lifestyle.allwomenstalk.com/bad-habits-thatll-make-college-life-miserable/)
-- [what does freshman 15 mean](https://weightloss.allwomenstalk.com/how-the-freshman-can-sneak-up-on-you/)
+- [travel tips for students](https://travel.allwomenstalk.com/you-have-to-see-these-top-travel-tips-for-college-students/)
+- [things found outside the classroom](https://lifestyle.allwomenstalk.com/things-youll-learn-in-college-that-wont-be-taught-in-class/)
+- [sparknotes com](https://lifestyle.allwomenstalk.com/websites-like-spark-notes-thatll-help-you-in-school/)
+- [last minute tweaks](https://teen.allwomenstalk.com/last-minute-tweaks-to-make-to-your-college-application/)
 - [stress short story](https://lifestyle.allwomenstalk.com/shorty-story-school-stress/)
 - [college peer pressure](https://teen.allwomenstalk.com/how-to-resist-peer-pressure-in-college/)
-- [sparknotes com](https://lifestyle.allwomenstalk.com/websites-like-spark-notes-thatll-help-you-in-school/)
+- [making friends in med school](https://lifestyle.allwomenstalk.com/every-med-school-student-has-dealt-with-these-things/)
+- [what does freshman 15 mean](https://weightloss.allwomenstalk.com/how-the-freshman-can-sneak-up-on-you/)
 - [8 Great Ways to save Money as a College Student .....](https://allwomenstalk.com/ways-to-save-money-as-a-student/)
 - [10 Ways to save Money for College ...](https://allwomenstalk.com/10-ways-to-save-money-for-college/)
 

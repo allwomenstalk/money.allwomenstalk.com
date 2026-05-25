@@ -42,16 +42,16 @@ Even if you can theoretically afford to spend a large chunk of your check right 
 
 ## Related Posts
 
-- [harmony in relationships](https://money.allwomenstalk.com/ways-to-have-financial-harmony-in-a-relationship/)
-- [making more money than your boyfriend](https://love.allwomenstalk.com/things-to-do-when-he-hates-the-fact-that-you-make-more-money-than-him/)
-- [am i obligated to give my parents money](https://money.allwomenstalk.com/reasons-not-to-rely-on-your-parents-for-money/)
+- [i need to get a grip](https://money.allwomenstalk.com/ways-to-get-a-grip-on-your-finances-this-year/)
 - [make money for teenagers](https://teen.allwomenstalk.com/ways-teenagers-can-make-money-without-a-job/)
+- [how often should you check your bank account](https://money.allwomenstalk.com/reasons-to-check-your-bank-account-daily/)
+- [am i obligated to give my parents money](https://money.allwomenstalk.com/reasons-not-to-rely-on-your-parents-for-money/)
+- [ways to build credit without credit card](https://money.allwomenstalk.com/awesome-ways-to-build-credit-without-a-credit-card/)
 - [avoid late payment](https://money.allwomenstalk.com/tips-to-avoid-late-payments-on-your-credit-card/)
 - [what to know before getting a credit card](https://money.allwomenstalk.com/things-you-need-to-know-before-you-get-your-first-credit-card/)
-- [i need to get a grip](https://money.allwomenstalk.com/ways-to-get-a-grip-on-your-finances-this-year/)
 - [cant get out of debt](https://money.allwomenstalk.com/reasons-why-you-cant-get-out-of-debt/)
-- [ways to build credit without credit card](https://money.allwomenstalk.com/awesome-ways-to-build-credit-without-a-credit-card/)
-- [how often should you check your bank account](https://money.allwomenstalk.com/reasons-to-check-your-bank-account-daily/)
+- [making more money than your boyfriend](https://love.allwomenstalk.com/things-to-do-when-he-hates-the-fact-that-you-make-more-money-than-him/)
+- [harmony in relationships](https://money.allwomenstalk.com/ways-to-have-financial-harmony-in-a-relationship/)
 - [7 Sure Ways to save Money ...](https://allwomenstalk.com/7-sure-ways-to-save-money/)
 - [7 Ways to Pinch Your Pennies ...](https://allwomenstalk.com/7-ways-to-pinch-your-pennies/)
 

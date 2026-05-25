@@ -42,15 +42,15 @@ I love shopping as much as the next girl. I’ve had to be careful not to let it
 
 ## Related Posts
 
-- [when to get rid of old clothes](https://fashion.allwomenstalk.com/signs-its-time-to-get-rid-of-old-clothes/)
-- [signs of bad company friends](https://lifestyle.allwomenstalk.com/warning-signs-you-are-in-bad-company-you-should-know-about/)
-- [how to know if you love your job](https://lifestyle.allwomenstalk.com/very-telling-signs-you-love-your-job/)
-- [signs there is no growth at work](https://lifestyle.allwomenstalk.com/crucial-signs-youve-outgrown-your-job/)
-- [signs of a dead end job and what to do about it](https://money.allwomenstalk.com/very-obvious-signs-you-are-stuck-in-a-dead-end-job/)
-- [signs of a bad company](https://lifestyle.allwomenstalk.com/signs-you-work-for-a-bad-company/)
 - [ipad addiction](https://lifestyle.allwomenstalk.com/signs-you-are-addicted-to-your-ipad/)
-- [new page of life meaning](https://inspiration.allwomenstalk.com/signs-its-time-to-start-a-new-chapter-in-your-life/)
+- [how to know if you love your job](https://lifestyle.allwomenstalk.com/very-telling-signs-you-love-your-job/)
+- [when to get rid of old clothes](https://fashion.allwomenstalk.com/signs-its-time-to-get-rid-of-old-clothes/)
+- [signs of a dead end job and what to do about it](https://money.allwomenstalk.com/very-obvious-signs-you-are-stuck-in-a-dead-end-job/)
+- [signs of bad company friends](https://lifestyle.allwomenstalk.com/warning-signs-you-are-in-bad-company-you-should-know-about/)
+- [signs there is no growth at work](https://lifestyle.allwomenstalk.com/crucial-signs-youve-outgrown-your-job/)
 - [how do you know its time to change jobs](https://lifestyle.allwomenstalk.com/signs-its-time-to-change-your-job/)
+- [new page of life meaning](https://inspiration.allwomenstalk.com/signs-its-time-to-start-a-new-chapter-in-your-life/)
+- [signs of a bad company](https://lifestyle.allwomenstalk.com/signs-you-work-for-a-bad-company/)
 - [The Late Show with David Lettermans Top Ten Signs ...](https://allwomenstalk.com/the-late-show-with-david-lettermans-top-ten-signs-youre-a-shopaholic/)
 - [8 Ways to Tell Youre a Shopaholic ...](https://allwomenstalk.com/8-ways-to-tell-youre-a-shopaholic/)
 - [8 Ways to Stop Your Shopaholic Ways ...](https://allwomenstalk.com/8-ways-to-stop-your-shopaholic-ways/)

@@ -46,16 +46,16 @@ Still convinced you don’t have any bad money habits? If on reading this you re
 
 ## Related Posts
 
-- [common mortgage mistakes](https://money.allwomenstalk.com/mortgage-mistakes-to-avoid/)
 - [how to get out of debt quickly](https://money.allwomenstalk.com/effective-ways-to-get-out-of-debt-fast/)
-- [smart with your money](https://money.allwomenstalk.com/ways-to-be-smart-with-your-money/)
-- [how to open an account with first bank](https://money.allwomenstalk.com/tips-for-opening-your-first-bank-account/)
 - [currency denomination in pakistan](https://money.allwomenstalk.com/things-used-as-money-in-the-past/)
-- [secret savings](https://money.allwomenstalk.com/smart-reasons-to-have-secret-savings/)
 - [money saving tips from millionaires](https://money.allwomenstalk.com/top-money-tips-from-famous-super-millionaires/)
-- [weird ways to earn money](https://money.allwomenstalk.com/unusual-ways-to-make-money/)
 - [how to get more out of your paycheck](https://money.allwomenstalk.com/tips-for-getting-the-most-out-of-your-paycheck/)
+- [secret savings](https://money.allwomenstalk.com/smart-reasons-to-have-secret-savings/)
+- [how to open an account with first bank](https://money.allwomenstalk.com/tips-for-opening-your-first-bank-account/)
+- [smart with your money](https://money.allwomenstalk.com/ways-to-be-smart-with-your-money/)
+- [weird ways to earn money](https://money.allwomenstalk.com/unusual-ways-to-make-money/)
 - [opening a second bank account](https://money.allwomenstalk.com/reasons-to-have-a-second-bank-account/)
+- [common mortgage mistakes](https://money.allwomenstalk.com/mortgage-mistakes-to-avoid/)
 - [8 Smart Tips on How to save Money ...](https://money.allwomenstalk.com/smart-tips-on-how-to-save-money/)
 - [8 More Ways to Make More Money ...](https://allwomenstalk.com/8-more-ways-to-make-more-money/)
 

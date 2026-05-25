@@ -44,16 +44,16 @@ Top Image Source: [lowyat.net](https://forum.lowyat.net/topic/2410674/all)
 
 ## Related Posts
 
-- [common mortgage mistakes](https://money.allwomenstalk.com/mortgage-mistakes-to-avoid/)
-- [currency denomination in pakistan](https://money.allwomenstalk.com/things-used-as-money-in-the-past/)
-- [how to open an account with first bank](https://money.allwomenstalk.com/tips-for-opening-your-first-bank-account/)
+- [how to get out of debt quickly](https://money.allwomenstalk.com/effective-ways-to-get-out-of-debt-fast/)
+- [opening a second bank account](https://money.allwomenstalk.com/reasons-to-have-a-second-bank-account/)
 - [smart with your money](https://money.allwomenstalk.com/ways-to-be-smart-with-your-money/)
 - [stop using credit card](https://money.allwomenstalk.com/smart-reasons-to-stop-using-credit-cards/)
+- [common mortgage mistakes](https://money.allwomenstalk.com/mortgage-mistakes-to-avoid/)
+- [how to open an account with first bank](https://money.allwomenstalk.com/tips-for-opening-your-first-bank-account/)
+- [money saving tips from millionaires](https://money.allwomenstalk.com/top-money-tips-from-famous-super-millionaires/)
+- [currency denomination in pakistan](https://money.allwomenstalk.com/things-used-as-money-in-the-past/)
 - [weird ways to earn money](https://money.allwomenstalk.com/unusual-ways-to-make-money/)
 - [how to get more out of your paycheck](https://money.allwomenstalk.com/tips-for-getting-the-most-out-of-your-paycheck/)
-- [opening a second bank account](https://money.allwomenstalk.com/reasons-to-have-a-second-bank-account/)
-- [how to get out of debt quickly](https://money.allwomenstalk.com/effective-ways-to-get-out-of-debt-fast/)
-- [money saving tips from millionaires](https://money.allwomenstalk.com/top-money-tips-from-famous-super-millionaires/)
 - [7 Budgeting Tips to save You Money ...](https://money.allwomenstalk.com/budgeting-tips-to-save-you-money/)
 - [7 Ways to save Money While Spending It ...](https://money.allwomenstalk.com/ways-to-save-money-while-spending-it/)
 

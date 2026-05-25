@@ -42,16 +42,16 @@ Well ladies, these are my money saving tips for back to school shopping. What do
 
 ## Related Posts
 
-- [11 Ways to save Money on This Holiday Season ...](https://money.allwomenstalk.com/ways-to-save-money-on-this-holiday-season/)
-- [8 Awesome Tips for the Perfect Shopping Experience...](https://fashion.allwomenstalk.com/awesome-tips-for-the-perfect-shopping-experience/)
-- [subway tipping](https://money.allwomenstalk.com/helpful-pointers-on-tipping-to-avoid-overspending/)
-- [8 Easy but Effective Ways to save Gas ...](https://money.allwomenstalk.com/easy-but-effective-ways-to-save-gas/)
 - [while analyzing sonias features you noticed that s...](https://money.allwomenstalk.com/tips-for-saving-money-at-the-drugstore-to-keep-you-fabulous-and-frugal/)
 - [7 Ways to Avoid Being Ripped off when Buying a Car...](https://money.allwomenstalk.com/ways-to-avoid-being-ripped-off-when-buying-a-car/)
+- [subway tipping](https://money.allwomenstalk.com/helpful-pointers-on-tipping-to-avoid-overspending/)
 - [9 Brilliant Ways to Stretch Your Holiday Budget .....](https://money.allwomenstalk.com/brilliant-ways-to-stretch-your-holiday-budget/)
 - [9 Tips to save Money and Still Spend ...](https://money.allwomenstalk.com/tips-to-save-money-and-still-spend/)
+- [11 Ways to save Money on This Holiday Season ...](https://money.allwomenstalk.com/ways-to-save-money-on-this-holiday-season/)
 - [7 Fantastic Ways to save Money on Your Holiday Exp...](https://money.allwomenstalk.com/fantastic-ways-to-save-money-on-your-holiday-expenses/)
+- [8 Easy but Effective Ways to save Gas ...](https://money.allwomenstalk.com/easy-but-effective-ways-to-save-gas/)
 - [7 Ways to save Money on Painting Your Home ...](https://money.allwomenstalk.com/ways-to-save-money-on-painting-your-home/)
+- [8 Awesome Tips for the Perfect Shopping Experience...](https://fashion.allwomenstalk.com/awesome-tips-for-the-perfect-shopping-experience/)
 - [7 Budgeting Tips to save You Money ...](https://money.allwomenstalk.com/budgeting-tips-to-save-you-money/)
 - [8 Smart Tips on How to save Money ...](https://money.allwomenstalk.com/smart-tips-on-how-to-save-money/)
 

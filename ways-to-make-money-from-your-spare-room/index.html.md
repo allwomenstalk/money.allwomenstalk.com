@@ -42,16 +42,16 @@ Your spare room can be used to make you some very useful cash, rather than just 
 
 ## Related Posts
 
-- [any ideas are welcome](https://diy.allwomenstalk.com/touching-ideas-for-a-welcome-home-party/)
-- [dorm mates](https://teen.allwomenstalk.com/quick-ways-to-become-friends-with-your-new-dormmates/)
-- [what to ask when apartment shopping](https://money.allwomenstalk.com/questions-you-need-to-ask-when-shopping-for-your-first-apartment/)
-- [learn how to survive alone](https://lifestyle.allwomenstalk.com/important-lessons-you-learn-when-you-live-alone/)
-- [moving in with boyfriend quotes](https://love.allwomenstalk.com/great-reasons-to-wait-before-moving-in-with-your-boyfriend/)
+- [holiday accommodation](https://travel.allwomenstalk.com/holiday-accommodation-issues-and-how-to-deal-with-them/)
 - [moving into his house](https://love.allwomenstalk.com/tips-for-moving-into-your-partners-home/)
 - [things to consider when emigrating](https://travel.allwomenstalk.com/things-to-consider-when-emigrating/)
 - [how to buy a mattress pad](https://lifestyle.allwomenstalk.com/things-to-consider-when-buying-a-mattress-pad/)
-- [holiday accommodation](https://travel.allwomenstalk.com/holiday-accommodation-issues-and-how-to-deal-with-them/)
 - [living in small apartment](https://lifestyle.allwomenstalk.com/ways-to-make-living-in-a-small-apartment-work/)
+- [dorm mates](https://teen.allwomenstalk.com/quick-ways-to-become-friends-with-your-new-dormmates/)
+- [any ideas are welcome](https://diy.allwomenstalk.com/touching-ideas-for-a-welcome-home-party/)
+- [moving in with boyfriend quotes](https://love.allwomenstalk.com/great-reasons-to-wait-before-moving-in-with-your-boyfriend/)
+- [learn how to survive alone](https://lifestyle.allwomenstalk.com/important-lessons-you-learn-when-you-live-alone/)
+- [what to ask when apartment shopping](https://money.allwomenstalk.com/questions-you-need-to-ask-when-shopping-for-your-first-apartment/)
 - [7 Risky Ways to Make Money ...](https://lifestyle.allwomenstalk.com/risky-ways-to-make-money/)
 - [7 Ways to Earn Cash ...](https://allwomenstalk.com/7-ways-to-earn-cash/)
 

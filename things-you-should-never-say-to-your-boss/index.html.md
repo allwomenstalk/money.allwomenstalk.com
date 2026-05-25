@@ -42,16 +42,16 @@ Sometimes saying the wrong thing to your boss could cost you your promotion or e
 
 ## Related Posts
 
-- [what not to wear at an interview](https://fashion.allwomenstalk.com/items-of-clothing-to-not-wear-to-an-interview/)
-- [things you should never say in a job interview](https://lifestyle.allwomenstalk.com/very-important-things-you-should-never-say-at-a-job-interview/)
-- [why you shouldnt text your ex](https://love.allwomenstalk.com/text-messages-you-should-never-send-to-your-ex/)
 - [dangerous driving habits](https://lifestyle.allwomenstalk.com/dangerous-driving-habits-to-stop-right-now/)
-- [flirty compliments for a girl](https://love.allwomenstalk.com/backhanded-compliments-you-should-avoid-when-flirting/)
-- [should you tell the other woman](https://love.allwomenstalk.com/lies-you-should-stop-telling-yourself-when-you-are-the-other-woman/)
 - [things not to say to your boyfriend](https://love.allwomenstalk.com/things-not-to-say-to-your-boyfriend-unless-you-want-to-drive-him-crazy/)
+- [things you should never say in a job interview](https://lifestyle.allwomenstalk.com/very-important-things-you-should-never-say-at-a-job-interview/)
+- [should you tell the other woman](https://love.allwomenstalk.com/lies-you-should-stop-telling-yourself-when-you-are-the-other-woman/)
+- [unwanted parenting advice from mother-in-law](https://parenting.allwomenstalk.com/pieces-of-parenting-advice-not-to-give-other-parents/)
 - [learning to keep my mouth shut](https://lifestyle.allwomenstalk.com/times-when-you-should-keep-your-mouth-shut/)
 - [what should be avoided at all cost](https://lifestyle.allwomenstalk.com/supermarket-mistakes-you-should-avoid-at-all-costs/)
-- [unwanted parenting advice from mother-in-law](https://parenting.allwomenstalk.com/pieces-of-parenting-advice-not-to-give-other-parents/)
+- [why you shouldnt text your ex](https://love.allwomenstalk.com/text-messages-you-should-never-send-to-your-ex/)
+- [what not to wear at an interview](https://fashion.allwomenstalk.com/items-of-clothing-to-not-wear-to-an-interview/)
+- [flirty compliments for a girl](https://love.allwomenstalk.com/backhanded-compliments-you-should-avoid-when-flirting/)
 - [10 Things You Should Never Admit to Anyone ...](https://allwomenstalk.com/10-things-you-should-never-admit-to-anyone/)
 - [7 Things You Should Never Tell Your Kids ...](https://allwomenstalk.com/7-things-you-should-never-tell-your-kids/)
 

@@ -42,16 +42,16 @@ So, are you ready to win the war against debt? Just remember: debt is a choice a
 
 ## Related Posts
 
-- [financial advice for new graduates](https://money.allwomenstalk.com/savvy-and-simple-financial-tips-for-new-graduates/)
-- [debt myths](https://money.allwomenstalk.com/money-myths-that-keep-you-in-debt/)
-- [having rich friends](https://money.allwomenstalk.com/things-your-rich-friends-wont-tell-you/)
-- [why do i live paycheck to paycheck](https://money.allwomenstalk.com/reasons-why-youll-always-live-paycheck-to-paycheck/)
 - [financial moves for stay-at-home parent](https://money.allwomenstalk.com/financial-moves-before-becoming-a-stay-at-home-parent/)
 - [dont teach your child to be rich](https://money.allwomenstalk.com/things-that-could-happen-if-you-dont-teach-your-kids-about-money/)
-- [ways to confess](https://money.allwomenstalk.com/ways-to-confess-money-problems-to-your-partner/)
+- [debt myths](https://money.allwomenstalk.com/money-myths-that-keep-you-in-debt/)
+- [why do i live paycheck to paycheck](https://money.allwomenstalk.com/reasons-why-youll-always-live-paycheck-to-paycheck/)
 - [dealing with student loan debt](https://money.allwomenstalk.com/strategies-for-dealing-with-student-loan-debt/)
+- [ways to confess](https://money.allwomenstalk.com/ways-to-confess-money-problems-to-your-partner/)
 - [how to gain knowledge in finance](https://money.allwomenstalk.com/best-ways-to-improve-your-financial-knowledge/)
+- [having rich friends](https://money.allwomenstalk.com/things-your-rich-friends-wont-tell-you/)
 - [credit card related questions](https://money.allwomenstalk.com/important-questions-to-ask-when-applying-for-a-credit-card/)
+- [financial advice for new graduates](https://money.allwomenstalk.com/savvy-and-simple-financial-tips-for-new-graduates/)
 - [7 Best Ways to Get out of Debt ...](https://money.allwomenstalk.com/best-ways-to-get-out-of-debt/)
 - [7 Tips to Pay off Student Loans ...](https://money.allwomenstalk.com/tips-to-pay-off-student-loans/)
 

@@ -30,16 +30,16 @@ Last, utilize action verbs instead of passive language. Show the reader that you
 
 ## Related Posts
 
+- [extracurricular resume](https://money.allwomenstalk.com/extracurricular-activities-that-will-make-your-resume-stand-out/)
 - [5 Bossbabe Time Management Tips to Take a Cue from...](https://lifestyle.allwomenstalk.com/bossbabe-time-management-tips/)
+- [How to Quit Your Job like a Professional ...](https://money.allwomenstalk.com/how-to-quit-your-job-like-a-professional/)
 - [Simple Ways to Be Healthier at Work ...](https://health.allwomenstalk.com/simple-ways-to-be-healthier-at-work/)
 - [How to Ask for a Raise ...](https://money.allwomenstalk.com/how-to-ask-for-a-raise/)
 - [4 Key Tips to Reading Clues in the Job Description...](https://money.allwomenstalk.com/how-to-read-clues-in-the-job-description-to-identify-salary/)
-- [extracurricular resume](https://money.allwomenstalk.com/extracurricular-activities-that-will-make-your-resume-stand-out/)
+- [8 Pro Tips for Working from Home like a Boss ...](https://money.allwomenstalk.com/tips-for-working-from-home-effectively/)
 - [The Importance of Laughter in the Workplace ...](https://inspiration.allwomenstalk.com/the-importance-of-laughter-in-the-workplace/)
 - [allwomenstalk](https://money.allwomenstalk.com/how-to-get-more-interviews-from-your-resume/)
-- [8 Pro Tips for Working from Home like a Boss ...](https://money.allwomenstalk.com/tips-for-working-from-home-effectively/)
 - [Superb Tips for Writing a Standout Resume ...](https://money.allwomenstalk.com/tips-for-writing-a-standout-resume/)
-- [How to Quit Your Job like a Professional ...](https://money.allwomenstalk.com/how-to-quit-your-job-like-a-professional/)
 - [7 Tips on Applying for a Job ...](https://parenting.allwomenstalk.com/7-tips-on-applying-for-a-job/)
 - [7 Tips on How to Write a Job-Winning CV ...](https://money.allwomenstalk.com/tips-on-how-to-write-a-job-winning-cv/)
 

@@ -42,16 +42,16 @@ Why not try something from this list this weekend? You might just find something
 
 ## Related Posts
 
-- [budget infographics](https://money.allwomenstalk.com/money-infographics-that-will-save-your-budget-and-your-hard-earned-cash/)
-- [cash flow savvy](https://fitness.allwomenstalk.com/ways-to-keep-fit-when-youre-flat-broke/)
+- [signs of a frugal person](https://money.allwomenstalk.com/habits-of-frugal-women-with-tons-of-cash/)
+- [cashsavvy](https://money.allwomenstalk.com/get-cash-savvy-with-these-money-saving-infographics/)
+- [starbucks kids temp](https://money.allwomenstalk.com/money-saving-starbucks-hacks-you-need-to-know-now/)
 - [grocery shopping for one on a budget](https://money.allwomenstalk.com/the-best-grocery-shopping-money-saving-tips-for-single-girls/)
 - [coupon matching sites](https://money.allwomenstalk.com/score-some-deals-with-these-coupon-websites/)
-- [cashsavvy](https://money.allwomenstalk.com/get-cash-savvy-with-these-money-saving-infographics/)
-- [signs of a frugal person](https://money.allwomenstalk.com/habits-of-frugal-women-with-tons-of-cash/)
-- [double wrap chipotle](https://food.allwomenstalk.com/chipotle-hacks-to-get-the-most-for-your-money/)
 - [genius ways to save money](https://money.allwomenstalk.com/heres-how-to-save-money-without-even-trying/)
+- [cash flow savvy](https://fitness.allwomenstalk.com/ways-to-keep-fit-when-youre-flat-broke/)
+- [budget infographics](https://money.allwomenstalk.com/money-infographics-that-will-save-your-budget-and-your-hard-earned-cash/)
+- [double wrap chipotle](https://food.allwomenstalk.com/chipotle-hacks-to-get-the-most-for-your-money/)
 - [starbucks hacks to save money](https://food.allwomenstalk.com/starbucks-hacks-to-help-you-save-money/)
-- [starbucks kids temp](https://money.allwomenstalk.com/money-saving-starbucks-hacks-you-need-to-know-now/)
 - [10 Ways to save Money by Being Frugal ...](https://money.allwomenstalk.com/ways-to-save-money-by-being-frugal/)
 - [8 Smart Tips on How to save Money ...](https://money.allwomenstalk.com/smart-tips-on-how-to-save-money/)
 

@@ -42,13 +42,13 @@ Many young adults strive to achieve financial independence. But given the econom
 
 ## Related Posts
 
-- [why have a student bank account](https://teen.allwomenstalk.com/reasons-why-you-need-to-open-a-student-bank-account/)
-- [how does a young person get a credit card](https://money.allwomenstalk.com/reasons-why-youre-too-young-for-a-credit-card/)
 - [freehost valencia](https://money.allwomenstalk.com/lessons-you-learn-while-living-paycheck-to-paycheck/)
-- [best paying jobs for teens](https://money.allwomenstalk.com/ways-to-make-money-if-youre-too-young-for-a-job/)
-- [what can i buy with credit](https://money.allwomenstalk.com/purchases-you-should-always-make-with-a-credit-card/)
 - [maximizing credit card rewards](https://money.allwomenstalk.com/simple-ways-to-maximize-credit-card-rewards/)
 - [freeloading friend](https://money.allwomenstalk.com/best-ways-to-deal-with-a-moocher/)
+- [best paying jobs for teens](https://money.allwomenstalk.com/ways-to-make-money-if-youre-too-young-for-a-job/)
+- [what can i buy with credit](https://money.allwomenstalk.com/purchases-you-should-always-make-with-a-credit-card/)
+- [why have a student bank account](https://teen.allwomenstalk.com/reasons-why-you-need-to-open-a-student-bank-account/)
+- [how does a young person get a credit card](https://money.allwomenstalk.com/reasons-why-youre-too-young-for-a-credit-card/)
 - [how to avoid bad credit](https://money.allwomenstalk.com/dos-and-donts-when-you-have-poor-credit/)
 - [collecting money in the workplace](https://money.allwomenstalk.com/hints-for-how-to-avoid-money-collections-at-work/)
 - [ask to borrow money](https://money.allwomenstalk.com/questions-to-ask-before-lending-your-friends-money/)

@@ -32,16 +32,16 @@ You should know when to control yourself and stop spending. If you feel weak whe
 
 ## Related Posts
 
-- [how to break spending habits](https://money.allwomenstalk.com/easy-ways-to-break-bad-spending-habits/)
-- [advantages of department stores](https://money.allwomenstalk.com/reasons-to-shop-at-thrift-stores-2/)
-- [en shopaholics jul - shopaholic 9](https://money.allwomenstalk.com/shopaholics-guide-to-not-breaking-the-bank-on-your-sprees/)
-- [reasons to thrift](https://money.allwomenstalk.com/reasons-to-shop-at-thrift-stores/)
 - [how can i fly first class cheap](https://travel.allwomenstalk.com/how-to-find-inexpensive-first-class-tickets/)
+- [teal colour](https://fashion.allwomenstalk.com/ways-to-look-expensive-on-a-budget/)
+- [how to break spending habits](https://money.allwomenstalk.com/easy-ways-to-break-bad-spending-habits/)
+- [reasons to thrift](https://money.allwomenstalk.com/reasons-to-shop-at-thrift-stores/)
+- [low cost festival](https://music.allwomenstalk.com/amazing-tips-for-doing-festival-season-on-a-budget/)
 - [cheaper alternatives to diamonds](https://jewelry.allwomenstalk.com/what-is-the-best-alternative-to-diamonds/)
 - [budget pamper](https://beauty.allwomenstalk.com/budget-friendly-ways-to-pamper-yourself-at-home/)
-- [low cost festival](https://music.allwomenstalk.com/amazing-tips-for-doing-festival-season-on-a-budget/)
 - [glam yourself](https://lifestyle.allwomenstalk.com/ways-to-treat-yourself-without-breaking-the-bank/)
-- [teal colour](https://fashion.allwomenstalk.com/ways-to-look-expensive-on-a-budget/)
+- [en shopaholics jul - shopaholic 9](https://money.allwomenstalk.com/shopaholics-guide-to-not-breaking-the-bank-on-your-sprees/)
+- [advantages of department stores](https://money.allwomenstalk.com/reasons-to-shop-at-thrift-stores-2/)
 - [5 Ways to Avoid or Reduce Debt .. and Spend More](https://lifestyle.allwomenstalk.com/ways-to-avoid-or-reduce-debt-and-spend-more/)
 - [10 Tips for Smart Budget Planning ...](https://allwomenstalk.com/10-tips-for-smart-budget-planning/)
 

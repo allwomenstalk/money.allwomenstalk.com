@@ -45,15 +45,15 @@ Get serious about your score and future financing will be a breeze. What credit 
 ## Related Posts
 
 - [simple saving savvy](https://money.allwomenstalk.com/simple-and-savvy-financial-habits/)
-- [how to lend money to others smart](https://money.allwomenstalk.com/tips-for-smart-borrowing/)
-- [7 Smart Things to do with Your Tax Refund ...](https://money.allwomenstalk.com/smart-things-to-do-with-your-tax-refund/)
+- [8 Financial Resolutions You Should Make in 2013 .....](https://money.allwomenstalk.com/financial-resolutions-you-should-make-in/)
+- [7 Bad Money Habits to Break in 2013 ...](https://money.allwomenstalk.com/bad-money-habits-to-break-in/)
+- [7 Myths of Credit Scores ...](https://money.allwomenstalk.com/myths-of-credit-scores/)
 - [7 Steps to Financial Fitness in 2013 ...](https://money.allwomenstalk.com/steps-to-financial-fitness-in/)
 - [alternative ways to earn money](https://money.allwomenstalk.com/alternative-ways-to-make-money/)
-- [7 Myths of Credit Scores ...](https://money.allwomenstalk.com/myths-of-credit-scores/)
-- [7 of the Most Basic Financial Mistakes ...](https://money.allwomenstalk.com/of-the-most-basic-financial-mistakes/)
 - [7 Tips to Help Beloved Seniors with Finances ...](https://money.allwomenstalk.com/tips-to-help-beloved-seniors-with-finances/)
-- [7 Bad Money Habits to Break in 2013 ...](https://money.allwomenstalk.com/bad-money-habits-to-break-in/)
-- [8 Financial Resolutions You Should Make in 2013 .....](https://money.allwomenstalk.com/financial-resolutions-you-should-make-in/)
+- [7 of the Most Basic Financial Mistakes ...](https://money.allwomenstalk.com/of-the-most-basic-financial-mistakes/)
+- [how to lend money to others smart](https://money.allwomenstalk.com/tips-for-smart-borrowing/)
+- [7 Smart Things to do with Your Tax Refund ...](https://money.allwomenstalk.com/smart-things-to-do-with-your-tax-refund/)
 - [9 Ways to Repair Your Credit Score ...](https://money.allwomenstalk.com/ways-to-repair-your-credit-score/)
 - [5 Things You Might Want to Know ...](https://allwomenstalk.com/things-you-might-want-to-know/)
 

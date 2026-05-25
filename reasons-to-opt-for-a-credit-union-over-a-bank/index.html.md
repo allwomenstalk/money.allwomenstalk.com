@@ -42,16 +42,16 @@ If you’re considering where your money is going each month, and how it is eith
 
 ## Related Posts
 
-- [am i obligated to give my parents money](https://money.allwomenstalk.com/reasons-not-to-rely-on-your-parents-for-money/)
-- [make money for teenagers](https://teen.allwomenstalk.com/ways-teenagers-can-make-money-without-a-job/)
-- [harmony in relationships](https://money.allwomenstalk.com/ways-to-have-financial-harmony-in-a-relationship/)
-- [cant get out of debt](https://money.allwomenstalk.com/reasons-why-you-cant-get-out-of-debt/)
-- [how often should you check your bank account](https://money.allwomenstalk.com/reasons-to-check-your-bank-account-daily/)
 - [what to do with your paycheck](https://money.allwomenstalk.com/ways-to-stop-blowing-your-paycheck-the-day-you-get-it/)
-- [month end money](https://money.allwomenstalk.com/reasons-why-youre-always-broke-at-the-end-of-the-month/)
-- [hidden charges](https://money.allwomenstalk.com/common-hidden-charges-and-how-to-avoid-them/)
-- [i need to get a grip](https://money.allwomenstalk.com/ways-to-get-a-grip-on-your-finances-this-year/)
 - [making more money than your boyfriend](https://love.allwomenstalk.com/things-to-do-when-he-hates-the-fact-that-you-make-more-money-than-him/)
+- [month end money](https://money.allwomenstalk.com/reasons-why-youre-always-broke-at-the-end-of-the-month/)
+- [cant get out of debt](https://money.allwomenstalk.com/reasons-why-you-cant-get-out-of-debt/)
+- [i need to get a grip](https://money.allwomenstalk.com/ways-to-get-a-grip-on-your-finances-this-year/)
+- [make money for teenagers](https://teen.allwomenstalk.com/ways-teenagers-can-make-money-without-a-job/)
+- [hidden charges](https://money.allwomenstalk.com/common-hidden-charges-and-how-to-avoid-them/)
+- [am i obligated to give my parents money](https://money.allwomenstalk.com/reasons-not-to-rely-on-your-parents-for-money/)
+- [how often should you check your bank account](https://money.allwomenstalk.com/reasons-to-check-your-bank-account-daily/)
+- [harmony in relationships](https://money.allwomenstalk.com/ways-to-have-financial-harmony-in-a-relationship/)
 - [7 Reasons to Change Banks ...](https://allwomenstalk.com/7-reasons-to-change-banks/)
 - [7 Reasons to Avoid Credit Problems ...](https://allwomenstalk.com/7-reasons-to-avoid-credit-problems/)
 

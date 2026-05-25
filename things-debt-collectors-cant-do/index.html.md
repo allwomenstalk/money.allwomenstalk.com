@@ -46,14 +46,14 @@ It’s good to know that there are things that debt collectors can’t do in pur
 
 ## Related Posts
 
+- [programs that teach money to kids](https://money.allwomenstalk.com/websites-to-teach-kids-about-money/)
+- [who looks at your credit report and why](https://money.allwomenstalk.com/things-your-credit-report-reveals-about-you/)
 - [why would you refinance a home loan](https://money.allwomenstalk.com/reasons-to-refinance-your-mortgage-loan/)
+- [starting a savings account](https://money.allwomenstalk.com/tips-for-starting-a-savings-account/)
+- [what small business can i start with no money](https://money.allwomenstalk.com/businesses-you-can-start-with-little-or-no-money/)
+- [how to avoid getting into debt](https://money.allwomenstalk.com/top-ways-to-avoid-getting-into-debt/)
 - [where would you feel richer](https://money.allwomenstalk.com/financial-nightmares-thatll-make-you-feel-richer/)
 - [how to make money as a stay at home mother](https://money.allwomenstalk.com/small-time-money-makin-ideas-for-the-sahm-stay-at-home-mom/)
-- [what small business can i start with no money](https://money.allwomenstalk.com/businesses-you-can-start-with-little-or-no-money/)
-- [starting a savings account](https://money.allwomenstalk.com/tips-for-starting-a-savings-account/)
-- [who looks at your credit report and why](https://money.allwomenstalk.com/things-your-credit-report-reveals-about-you/)
-- [programs that teach money to kids](https://money.allwomenstalk.com/websites-to-teach-kids-about-money/)
-- [how to avoid getting into debt](https://money.allwomenstalk.com/top-ways-to-avoid-getting-into-debt/)
 - [reasons to keep cash](https://money.allwomenstalk.com/reasons-to-carry-cash-with-you/)
 - [avoid getting into debt](https://money.allwomenstalk.com/ways-to-avoid-getting-into-debt/)
 - [8 Things to Never Tell Your Parents ...](https://allwomenstalk.com/8-things-to-never-tell-your-parents/)

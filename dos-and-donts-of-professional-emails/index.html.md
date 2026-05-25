@@ -46,16 +46,16 @@ I know this is a pretty boring subject but it is crucial that your online corres
 
 ## Related Posts
 
-- [8 Rights You Have in the Workplace ...](https://money.allwomenstalk.com/rights-you-have-in-the-workplace/)
+- [7 Reasons Why You Might Not Get Hired ...](https://money.allwomenstalk.com/reasons-why-you-might-not-get-hired/)
 - [7 Tips for a Better WorkLife Balance ...](https://lifestyle.allwomenstalk.com/tips-for-a-better-worklife-balance/)
 - [10 Must-Have Work Skills for 2013 ...](https://lifestyle.allwomenstalk.com/must-have-work-skills-for/)
-- [tips on how to network at work](https://money.allwomenstalk.com/tips-to-network-in-your-career/)
 - [7 Helpful Hints on Nailing a Skype Interview ...](https://money.allwomenstalk.com/helpful-hints-on-nailing-a-skype-interview/)
-- [7 Reasons Why You Might Not Get Hired ...](https://money.allwomenstalk.com/reasons-why-you-might-not-get-hired/)
-- [what does your resume say about you](https://lifestyle.allwomenstalk.com/things-your-resume-says-about-you/)
 - [7 Tips for a Good First Day at Work ...](https://lifestyle.allwomenstalk.com/tips-for-a-good-first-day-at-work/)
-- [9 Tips on How to Get a Great Internship ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-get-a-great-internship/)
+- [tips on how to network at work](https://money.allwomenstalk.com/tips-to-network-in-your-career/)
+- [what does your resume say about you](https://lifestyle.allwomenstalk.com/things-your-resume-says-about-you/)
+- [8 Rights You Have in the Workplace ...](https://money.allwomenstalk.com/rights-you-have-in-the-workplace/)
 - [7 Tips on Dealing with Job Search Depression ...](https://lifestyle.allwomenstalk.com/tips-on-dealing-with-job-search-depression/)
+- [9 Tips on How to Get a Great Internship ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-get-a-great-internship/)
 - [8 Tips on Avoiding Online Scams ...](https://allwomenstalk.com/8-tips-on-avoiding-online-scams/)
 - [8 Advantages of Electronic Communication ...](https://allwomenstalk.com/8-advantages-of-electronic-communication/)
 

@@ -42,16 +42,16 @@ Being a single parent has its financial challenges, but you can get through toug
 
 ## Related Posts
 
-- [teaching credit cards to high school students](https://money.allwomenstalk.com/reasons-you-need-to-get-a-credit-card-while-in-high-school/)
 - [lost wallet what to do](https://money.allwomenstalk.com/important-things-you-should-do-immediately-after-losing-your-wallet/)
-- [overspending friends](https://money.allwomenstalk.com/are-your-friends-making-you-overspend-heres-what-to-do/)
-- [funny credit card design](https://money.allwomenstalk.com/you-might-prefer-cash-but-heres-times-when-its-better-to-use-credit/)
-- [fights about money](https://love.allwomenstalk.com/ways-to-prevent-money-fights-with-your-partner/)
 - [how to be more disciplined with money](https://money.allwomenstalk.com/ways-to-be-financially-disciplined-at-a-young-age/)
-- [girls in 20s](https://money.allwomenstalk.com/how-to-survive-your-20s-without-a-credit-card/)
-- [loose change money](https://money.allwomenstalk.com/loose-change-lying-around-heres-how-you-can-spend-it/)
-- [7 steps to achieve financial freedom](https://money.allwomenstalk.com/the-steps-to-being-financially-free/)
+- [funny credit card design](https://money.allwomenstalk.com/you-might-prefer-cash-but-heres-times-when-its-better-to-use-credit/)
 - [earn extra cash for christmas](https://money.allwomenstalk.com/how-to-make-extra-cash-before-christmas/)
+- [girls in 20s](https://money.allwomenstalk.com/how-to-survive-your-20s-without-a-credit-card/)
+- [7 steps to achieve financial freedom](https://money.allwomenstalk.com/the-steps-to-being-financially-free/)
+- [fights about money](https://love.allwomenstalk.com/ways-to-prevent-money-fights-with-your-partner/)
+- [loose change money](https://money.allwomenstalk.com/loose-change-lying-around-heres-how-you-can-spend-it/)
+- [overspending friends](https://money.allwomenstalk.com/are-your-friends-making-you-overspend-heres-what-to-do/)
+- [teaching credit cards to high school students](https://money.allwomenstalk.com/reasons-you-need-to-get-a-credit-card-while-in-high-school/)
 - [7 Ways to Reduce Costs with a New Baby ...](https://parenting.allwomenstalk.com/ways-to-reduce-costs-with-a-new-baby/)
 - [7 Smart Ways to Cut Childcare Costs ...](https://money.allwomenstalk.com/smart-ways-to-cut-childcare-costs/)
 

@@ -44,16 +44,16 @@ What are other ways to confess money problems?
 
 ## Related Posts
 
-- [having rich friends](https://money.allwomenstalk.com/things-your-rich-friends-wont-tell-you/)
 - [best credit card for lifestyle](https://money.allwomenstalk.com/best-credit-cards-for-different-lifestyles/)
+- [homebudget with sync](https://apps.allwomenstalk.com/fantastic-apps-for-personal-finance-and-budgeting/)
+- [excuses to get money from parents](https://money.allwomenstalk.com/bad-excuses-that-can-wreck-your-finances/)
+- [why do i live paycheck to paycheck](https://money.allwomenstalk.com/reasons-why-youll-always-live-paycheck-to-paycheck/)
+- [having rich friends](https://money.allwomenstalk.com/things-your-rich-friends-wont-tell-you/)
+- [7 reasons to check your credit report](https://money.allwomenstalk.com/excellent-reasons-to-check-your-credit-today/)
+- [how to separate business and personal finances](https://money.allwomenstalk.com/ways-to-run-your-personal-finances-like-a-business/)
+- [what they dont teach you about money](https://money.allwomenstalk.com/things-your-parents-didnt-teach-you-about-money/)
 - [personal loan mistakes](https://money.allwomenstalk.com/common-loans-mistakes-you-should-not-make/)
 - [ways to increase your credit rating](https://money.allwomenstalk.com/ways-to-improve-your-credit-rating/)
-- [why do i live paycheck to paycheck](https://money.allwomenstalk.com/reasons-why-youll-always-live-paycheck-to-paycheck/)
-- [what they dont teach you about money](https://money.allwomenstalk.com/things-your-parents-didnt-teach-you-about-money/)
-- [how to separate business and personal finances](https://money.allwomenstalk.com/ways-to-run-your-personal-finances-like-a-business/)
-- [7 reasons to check your credit report](https://money.allwomenstalk.com/excellent-reasons-to-check-your-credit-today/)
-- [excuses to get money from parents](https://money.allwomenstalk.com/bad-excuses-that-can-wreck-your-finances/)
-- [homebudget with sync](https://apps.allwomenstalk.com/fantastic-apps-for-personal-finance-and-budgeting/)
 - [7 Ways to Encourage Your Partner ...](https://allwomenstalk.com/7-ways-to-encourage-your-partner/)
 - [7 Tips on Dealing with Money Issues in a Relations...](https://allwomenstalk.com/7-tips-on-dealing-with-money-issues-in-a-relationship/)
 

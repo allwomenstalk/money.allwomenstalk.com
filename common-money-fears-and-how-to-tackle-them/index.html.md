@@ -42,16 +42,16 @@ These common money fears might be common, but there is no doubt that you’ll fe
 
 ## Related Posts
 
-- [money problems in marriage](https://money.allwomenstalk.com/ways-to-avoid-money-problems-in-marriage/)
-- [8 Ways to Spring Clean Your Finances ...](https://money.allwomenstalk.com/ways-to-spring-clean-your-finances/)
-- [7 Reasons to Break up with Your Credit Card ...](https://money.allwomenstalk.com/reasons-to-break-up-with-your-credit-card/)
-- [8 Tips to Help You Pay off Your Debt ...](https://money.allwomenstalk.com/tips-to-help-you-pay-off-your-debt/)
-- [impress mortgage](https://money.allwomenstalk.com/ways-to-impress-a-mortgage-lender/)
-- [9 Advantages of Using Prepaid Cards to Manage Fina...](https://money.allwomenstalk.com/advantages-of-using-prepaid-cards-to-manage-finances/)
-- [7 Ways to Increase Your Income in 2013 ...](https://money.allwomenstalk.com/ways-to-increase-your-income-in/)
-- [8 Ways to Pay off Debt Quickly ...](https://money.allwomenstalk.com/ways-to-pay-off-debt-quickly/)
-- [7 Financial Scams to Avoid ...](https://money.allwomenstalk.com/financial-scams-to-avoid/)
 - [7 Ways to Increase Your Income This Year ...](https://money.allwomenstalk.com/ways-to-increase-your-income-this-year/)
+- [impress mortgage](https://money.allwomenstalk.com/ways-to-impress-a-mortgage-lender/)
+- [money problems in marriage](https://money.allwomenstalk.com/ways-to-avoid-money-problems-in-marriage/)
+- [9 Advantages of Using Prepaid Cards to Manage Fina...](https://money.allwomenstalk.com/advantages-of-using-prepaid-cards-to-manage-finances/)
+- [8 Ways to Pay off Debt Quickly ...](https://money.allwomenstalk.com/ways-to-pay-off-debt-quickly/)
+- [8 Ways to Spring Clean Your Finances ...](https://money.allwomenstalk.com/ways-to-spring-clean-your-finances/)
+- [7 Financial Scams to Avoid ...](https://money.allwomenstalk.com/financial-scams-to-avoid/)
+- [8 Tips to Help You Pay off Your Debt ...](https://money.allwomenstalk.com/tips-to-help-you-pay-off-your-debt/)
+- [7 Ways to Increase Your Income in 2013 ...](https://money.allwomenstalk.com/ways-to-increase-your-income-in/)
+- [7 Reasons to Break up with Your Credit Card ...](https://money.allwomenstalk.com/reasons-to-break-up-with-your-credit-card/)
 - [7 Steps to Improve Your Finances ...](https://allwomenstalk.com/7-steps-to-improve-your-finances/)
 - [7 Tips for Budgeting Your Finances ...](https://allwomenstalk.com/7-tips-for-budgeting-your-finances/)
 

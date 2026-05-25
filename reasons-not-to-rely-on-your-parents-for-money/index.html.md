@@ -42,15 +42,15 @@ It's different if they're helping you through college or if they offer you some 
 
 ## Related Posts
 
-- [how often should you check your bank account](https://money.allwomenstalk.com/reasons-to-check-your-bank-account-daily/)
-- [budget tools free online](https://money.allwomenstalk.com/free-budgeting-tools-to-keep-you-on-track/)
 - [what to know before getting a credit card](https://money.allwomenstalk.com/things-you-need-to-know-before-you-get-your-first-credit-card/)
-- [make money for teenagers](https://teen.allwomenstalk.com/ways-teenagers-can-make-money-without-a-job/)
 - [i need to get a grip](https://money.allwomenstalk.com/ways-to-get-a-grip-on-your-finances-this-year/)
+- [cant get out of debt](https://money.allwomenstalk.com/reasons-why-you-cant-get-out-of-debt/)
 - [avoid late payment](https://money.allwomenstalk.com/tips-to-avoid-late-payments-on-your-credit-card/)
 - [making more money than your boyfriend](https://love.allwomenstalk.com/things-to-do-when-he-hates-the-fact-that-you-make-more-money-than-him/)
+- [how often should you check your bank account](https://money.allwomenstalk.com/reasons-to-check-your-bank-account-daily/)
+- [make money for teenagers](https://teen.allwomenstalk.com/ways-teenagers-can-make-money-without-a-job/)
+- [budget tools free online](https://money.allwomenstalk.com/free-budgeting-tools-to-keep-you-on-track/)
 - [ways to build credit without credit card](https://money.allwomenstalk.com/awesome-ways-to-build-credit-without-a-credit-card/)
-- [cant get out of debt](https://money.allwomenstalk.com/reasons-why-you-cant-get-out-of-debt/)
 - [harmony in relationships](https://money.allwomenstalk.com/ways-to-have-financial-harmony-in-a-relationship/)
 - [7 Reasons to Ignore Advice on Parenting ...](https://parenting.allwomenstalk.com/7-reasons-to-ignore-advice-on-parenting/)
 - [7 Reasons to Respect Your Parents ...](https://allwomenstalk.com/7-reasons-to-respect-your-parents/)

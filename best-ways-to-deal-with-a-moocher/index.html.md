@@ -42,16 +42,16 @@ A freeloading friend can deplete your disposable income, and her money ways can 
 
 ## Related Posts
 
-- [where can i get help with money](https://money.allwomenstalk.com/tips-on-asking-for-financial-help/)
-- [once you know how to ____________ money your money...](https://money.allwomenstalk.com/ways-to-stop-letting-money-control-your-life/)
-- [why credit matters](https://money.allwomenstalk.com/situations-when-your-credit-matters-the-most/)
 - [spending personality](https://money.allwomenstalk.com/things-your-credit-card-says-about-your-spending-personality/)
-- [freehost valencia](https://money.allwomenstalk.com/lessons-you-learn-while-living-paycheck-to-paycheck/)
+- [why credit matters](https://money.allwomenstalk.com/situations-when-your-credit-matters-the-most/)
+- [once you know how to ____________ money your money...](https://money.allwomenstalk.com/ways-to-stop-letting-money-control-your-life/)
 - [cash money  marvelous](https://money.allwomenstalk.com/money-mantras-you-need-to-adopt-in/)
+- [signs of a frugal person](https://money.allwomenstalk.com/obvious-signs-youre-becoming-less-frugal-with-your-money/)
+- [where can i get help with money](https://money.allwomenstalk.com/tips-on-asking-for-financial-help/)
 - [how to live on half your income](https://money.allwomenstalk.com/single-here-are-ways-to-live-off-half-your-income/)
+- [freehost valencia](https://money.allwomenstalk.com/lessons-you-learn-while-living-paycheck-to-paycheck/)
 - [maxed out credit card outfit](https://money.allwomenstalk.com/types-of-people-who-should-avoid-credit-cards/)
 - [why debt is bad](https://money.allwomenstalk.com/reasons-why-debt-is-bad-for-you/)
-- [signs of a frugal person](https://money.allwomenstalk.com/obvious-signs-youre-becoming-less-frugal-with-your-money/)
 - [WWYD: Stinginess Ends in Foolishness ...](https://allwomenstalk.com/wwyd-stinginess-ends-in-foolishness/)
 - [Take Time out for YOU ...](https://allwomenstalk.com/take-time-out-for-you/)
 

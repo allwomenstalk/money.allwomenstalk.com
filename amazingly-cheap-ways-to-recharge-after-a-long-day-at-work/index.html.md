@@ -42,16 +42,16 @@ You might not be able to change the stressful nature of your job, but there are 
 
 ## Related Posts
 
-- [writers block exercises](https://lifestyle.allwomenstalk.com/effective-exercises-to-overcome-writers-block/)
-- [how to cope with christmas alone](https://health.allwomenstalk.com/ways-to-cope-with-being-alone-at-christmas/)
-- [stress management infographics](https://health.allwomenstalk.com/best-infographics-to-help-you-reduce-your-stress-levels/)
-- [sad websites](https://health.allwomenstalk.com/websites-to-visit-if-youre-suffering-from-depression/)
-- [Here Are the 7 Best Ways to Give Your Brain a Work...](https://health.allwomenstalk.com/here-are-the-best-ways-to-give-your-brain-a-workout/)
 - [seems like everything is going wrong](https://inspiration.allwomenstalk.com/ways-to-cope-when-it-seems-like-everything-is-going-wrong/)
-- [how to be more relaxed and laid back](https://lifestyle.allwomenstalk.com/tips-to-become-a-more-laid-back-person/)
+- [Here Are the 7 Best Ways to Give Your Brain a Work...](https://health.allwomenstalk.com/here-are-the-best-ways-to-give-your-brain-a-workout/)
+- [writers block exercises](https://lifestyle.allwomenstalk.com/effective-exercises-to-overcome-writers-block/)
+- [sad websites](https://health.allwomenstalk.com/websites-to-visit-if-youre-suffering-from-depression/)
+- [stress management infographics](https://health.allwomenstalk.com/best-infographics-to-help-you-reduce-your-stress-levels/)
 - [websites like lumosity](https://lifestyle.allwomenstalk.com/websites-that-will-stimulate-your-brain/)
-- [cat relaxing gif](https://health.allwomenstalk.com/feeling-stressed-these-relaxing-gifs-will-calm-you-down/)
 - [things to do at night instead of watching tv](https://lifestyle.allwomenstalk.com/ways-to-relax-at-night-besides-watching-tv/)
+- [cat relaxing gif](https://health.allwomenstalk.com/feeling-stressed-these-relaxing-gifs-will-calm-you-down/)
+- [how to cope with christmas alone](https://health.allwomenstalk.com/ways-to-cope-with-being-alone-at-christmas/)
+- [how to be more relaxed and laid back](https://lifestyle.allwomenstalk.com/tips-to-become-a-more-laid-back-person/)
 - [9 Healthy  Fun Ways to Relax ...](https://health.allwomenstalk.com/healthy-fun-ways-to-relax/)
 - [7 Ways to Reward Yourself for under 10 ...](https://allwomenstalk.com/7-ways-to-reward-yourself-for-under-10/)
 

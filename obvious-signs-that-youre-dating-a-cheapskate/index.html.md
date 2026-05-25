@@ -42,16 +42,16 @@ Realizing that you're dating a cheapskate isn't necessarily a deal breaker. Howe
 
 ## Related Posts
 
-- [how to tell when a man likes you](https://love.allwomenstalk.com/signs-he-likes-you-for-more-than-your-body/)
-- [infatuated synonym](https://love.allwomenstalk.com/signs-that-hes-fatally-attracted-to-you/)
-- [signs of jealousy on facebook](https://lifestyle.allwomenstalk.com/signs-your-friend-is-jealous-of-you/)
-- [bff forever pics](https://inspiration.allwomenstalk.com/signs-youll-be-best-friends-forever/)
-- [how to know hes the one to marry](https://love.allwomenstalk.com/signs-hes-the-one-youre-meant-to-marry/)
-- [dating someone with no goals](https://love.allwomenstalk.com/signs-youre-dating-an-immature-guy/)
-- [taking things personally](https://love.allwomenstalk.com/signs-you-may-be-taking-things-too-personally-in-your-relationship/)
-- [will i ever find someone better than my ex](https://love.allwomenstalk.com/signs-you-deserve-someone-better-than-your-ex/)
-- [is he thinking about marriage](https://love.allwomenstalk.com/telling-signs-hes-got-marriage-on-his-mind/)
 - [is he my best friend](https://love.allwomenstalk.com/clear-signs-your-boyfriend-is-also-your-best-friend/)
+- [how to tell when a man likes you](https://love.allwomenstalk.com/signs-he-likes-you-for-more-than-your-body/)
+- [taking things personally](https://love.allwomenstalk.com/signs-you-may-be-taking-things-too-personally-in-your-relationship/)
+- [bff forever pics](https://inspiration.allwomenstalk.com/signs-youll-be-best-friends-forever/)
+- [dating someone with no goals](https://love.allwomenstalk.com/signs-youre-dating-an-immature-guy/)
+- [signs of jealousy on facebook](https://lifestyle.allwomenstalk.com/signs-your-friend-is-jealous-of-you/)
+- [will i ever find someone better than my ex](https://love.allwomenstalk.com/signs-you-deserve-someone-better-than-your-ex/)
+- [infatuated synonym](https://love.allwomenstalk.com/signs-that-hes-fatally-attracted-to-you/)
+- [how to know hes the one to marry](https://love.allwomenstalk.com/signs-hes-the-one-youre-meant-to-marry/)
+- [is he thinking about marriage](https://love.allwomenstalk.com/telling-signs-hes-got-marriage-on-his-mind/)
 - [7 Signs Your Spouse is Cheating ...](https://allwomenstalk.com/7-signs-your-spouse-is-cheating/)
 - [19 Signs Youre Dating a Loser ...](https://allwomenstalk.com/10-signs-youre-dating-a-loser/)
 

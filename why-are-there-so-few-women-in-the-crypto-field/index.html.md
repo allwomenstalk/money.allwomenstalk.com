@@ -36,16 +36,16 @@ Stewart told the CBC if bitcoin and other virtual currencies have staying power 
 
 ## Related Posts
 
-- [Am I Being Verbally Abused  These Questions Will H...](https://love.allwomenstalk.com/am-i-being-verbally-abused/)
-- [Do You Have  a Financial Plan for the Future](https://money.allwomenstalk.com/have-you-a-financial-plan-for-your-future/)
-- [Can Men  and Women Ever Really Be  Just Friends](https://love.allwomenstalk.com/can-men-and-women-ever-really-be-just-friends/)
 - [Watch This Video to See Which  Type of Annoying Pa...](https://teen.allwomenstalk.com/annoying-types-of-parents/)
-- [Why do We  Keep Going Back to Our Ex](https://love.allwomenstalk.com/why-do-we-keep-going-back-to-our-ex/)
+- [Am I Being Verbally Abused  These Questions Will H...](https://love.allwomenstalk.com/am-i-being-verbally-abused/)
 - [which flower](https://gardening.allwomenstalk.com/which-flower-suits-you-best/)
+- [Are You  Self-sabotaging Your Goals](https://inspiration.allwomenstalk.com/are-you-self-sabotaging-your-goals/)
+- [Why do We  Keep Going Back to Our Ex](https://love.allwomenstalk.com/why-do-we-keep-going-back-to-our-ex/)
+- [Do You Have  a Financial Plan for the Future](https://money.allwomenstalk.com/have-you-a-financial-plan-for-your-future/)
+- [Should You Exercise when You Are Sick](https://fitness.allwomenstalk.com/should-you-exercise-when-youre-sick/)
 - [What is Personality](https://inspiration.allwomenstalk.com/what-is-personality/)
 - [Are You  Emotionally Cheating](https://love.allwomenstalk.com/are-you-emotionally-cheating/)
-- [Are You  Self-sabotaging Your Goals](https://inspiration.allwomenstalk.com/are-you-self-sabotaging-your-goals/)
-- [Should You Exercise when You Are Sick](https://fitness.allwomenstalk.com/should-you-exercise-when-youre-sick/)
+- [Can Men  and Women Ever Really Be  Just Friends](https://love.allwomenstalk.com/can-men-and-women-ever-really-be-just-friends/)
 - [Real Women Have a Life](https://allwomenstalk.com/real-women-have-a-life/)
 - [Women and Migraines is It in Your Head](https://allwomenstalk.com/women-and-migraines-is-it-in-your-head/)
 

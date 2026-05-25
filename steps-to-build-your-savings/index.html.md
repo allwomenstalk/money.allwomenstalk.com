@@ -37,15 +37,15 @@ Do you have a savings account? Do you feel it's helped you?
 ## Related Posts
 
 - [non mlm side hustles](https://money.allwomenstalk.com/side-hustles-to-make-money/)
-- [ways to pay for college without financial aid](https://money.allwomenstalk.com/ways-to-pay-for-college-without-a-loan/)
-- [help paying off debt](https://money.allwomenstalk.com/need-help-paying-off-debt-on-a-low-income-check-this-out/)
-- [financial basics everyone should know](https://money.allwomenstalk.com/basics-of-finance-everyone-should-know/)
-- [gillian perkins](https://money.allwomenstalk.com/ways-gillian-perkins-actually-makes-money-from-home/)
 - [think of 3 important decisions you will make that ...](https://money.allwomenstalk.com/the-most-important-financial-decisions-you-will-make-in-your-life/)
-- [how to protect your identity on social media](https://apps.allwomenstalk.com/easy-ways-to-protect-yourself-from-identity-theft/)
-- [How to Deal with a Partner Who is Useless with Mon...](https://money.allwomenstalk.com/how-to-deal-with-a-partner-who-is-useless-with-money/)
+- [ways to pay for college without financial aid](https://money.allwomenstalk.com/ways-to-pay-for-college-without-a-loan/)
 - [investment options for women](https://money.allwomenstalk.com/best-investment-options-for-women/)
 - [small mistakes big consequences](https://money.allwomenstalk.com/small-financial-mistakes-with-big-consequences/)
+- [gillian perkins](https://money.allwomenstalk.com/ways-gillian-perkins-actually-makes-money-from-home/)
+- [help paying off debt](https://money.allwomenstalk.com/need-help-paying-off-debt-on-a-low-income-check-this-out/)
+- [financial basics everyone should know](https://money.allwomenstalk.com/basics-of-finance-everyone-should-know/)
+- [how to protect your identity on social media](https://apps.allwomenstalk.com/easy-ways-to-protect-yourself-from-identity-theft/)
+- [How to Deal with a Partner Who is Useless with Mon...](https://money.allwomenstalk.com/how-to-deal-with-a-partner-who-is-useless-with-money/)
 - [7 Ways to Grow Your Savings This Year ...](https://allwomenstalk.com/7-ways-to-grow-your-savings-this-year/)
 - [7 Steps to Improve Your Finances ...](https://allwomenstalk.com/7-steps-to-improve-your-finances/)
 

@@ -42,16 +42,16 @@ Lending money to friends is risky business; but at the end of the day, you have 
 
 ## Related Posts
 
-- [freeloading friend](https://money.allwomenstalk.com/best-ways-to-deal-with-a-moocher/)
-- [how to avoid bad credit](https://money.allwomenstalk.com/dos-and-donts-when-you-have-poor-credit/)
-- [collecting money in the workplace](https://money.allwomenstalk.com/hints-for-how-to-avoid-money-collections-at-work/)
-- [signs of a frugal person](https://money.allwomenstalk.com/obvious-signs-youre-becoming-less-frugal-with-your-money/)
-- [cash money  marvelous](https://money.allwomenstalk.com/money-mantras-you-need-to-adopt-in/)
-- [where can i get help with money](https://money.allwomenstalk.com/tips-on-asking-for-financial-help/)
-- [maximizing credit card rewards](https://money.allwomenstalk.com/simple-ways-to-maximize-credit-card-rewards/)
-- [how does a young person get a credit card](https://money.allwomenstalk.com/reasons-why-youre-too-young-for-a-credit-card/)
-- [what can i buy with credit](https://money.allwomenstalk.com/purchases-you-should-always-make-with-a-credit-card/)
 - [freehost valencia](https://money.allwomenstalk.com/lessons-you-learn-while-living-paycheck-to-paycheck/)
+- [signs of a frugal person](https://money.allwomenstalk.com/obvious-signs-youre-becoming-less-frugal-with-your-money/)
+- [collecting money in the workplace](https://money.allwomenstalk.com/hints-for-how-to-avoid-money-collections-at-work/)
+- [what can i buy with credit](https://money.allwomenstalk.com/purchases-you-should-always-make-with-a-credit-card/)
+- [freeloading friend](https://money.allwomenstalk.com/best-ways-to-deal-with-a-moocher/)
+- [cash money  marvelous](https://money.allwomenstalk.com/money-mantras-you-need-to-adopt-in/)
+- [maximizing credit card rewards](https://money.allwomenstalk.com/simple-ways-to-maximize-credit-card-rewards/)
+- [how to avoid bad credit](https://money.allwomenstalk.com/dos-and-donts-when-you-have-poor-credit/)
+- [where can i get help with money](https://money.allwomenstalk.com/tips-on-asking-for-financial-help/)
+- [how does a young person get a credit card](https://money.allwomenstalk.com/reasons-why-youre-too-young-for-a-credit-card/)
 - [7 Questions to Ask Yourself before Your First Time...](https://love.allwomenstalk.com/7-questions-to-ask-yourself-before-your-first-time/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 

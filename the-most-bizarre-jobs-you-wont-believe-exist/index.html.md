@@ -58,15 +58,15 @@ _insidejobs.com_
 
 ## Related Posts
 
-- [how to deal with coworkers when you get promoted](https://money.allwomenstalk.com/got-a-promotion-how-to-go-from-colleague-to-boss/)
 - [cover letter for a dream job](https://money.allwomenstalk.com/how-to-write-the-cover-letter-thatll-land-you-your-dream-job/)
-- [the office side eye](https://movies.allwomenstalk.com/times-the-office-made-us-all-want-to-work-in-an-office/)
-- [careers with best work life balance](https://money.allwomenstalk.com/jobs-with-the-best-work-life-balance/)
-- [why is retail so stressful](https://funny.allwomenstalk.com/gifs-that-describe-the-stressful-life-of-a-retail-worker/)
 - [work from bed gif](https://money.allwomenstalk.com/these-gifs-show-perfectly-what-its-really-like-to-work-from-home/)
-- [work work work gif funny](https://funny.allwomenstalk.com/gifs-that-sum-up-your-day-at-work/)
-- [productivity sites](https://lifestyle.allwomenstalk.com/get-more-work-done-with-these-websites/)
+- [careers with best work life balance](https://money.allwomenstalk.com/jobs-with-the-best-work-life-balance/)
+- [how to deal with coworkers when you get promoted](https://money.allwomenstalk.com/got-a-promotion-how-to-go-from-colleague-to-boss/)
+- [the office side eye](https://movies.allwomenstalk.com/times-the-office-made-us-all-want-to-work-in-an-office/)
 - [plenty of fish inbox](https://lifestyle.allwomenstalk.com/email-tips-for-appearing-professional/)
+- [why is retail so stressful](https://funny.allwomenstalk.com/gifs-that-describe-the-stressful-life-of-a-retail-worker/)
+- [productivity sites](https://lifestyle.allwomenstalk.com/get-more-work-done-with-these-websites/)
+- [work work work gif funny](https://funny.allwomenstalk.com/gifs-that-sum-up-your-day-at-work/)
 - [websites to pass time at work](https://lifestyle.allwomenstalk.com/sites-to-waste-time-on-at-work/)
 - [10 Things That Have Weird Names in Other Countries...](https://travel.allwomenstalk.com/10-things-that-have-weird-names-in-other-countries/)
 - [8 Coolest Jobs in the World ...](https://money.allwomenstalk.com/coolest-jobs-in-the-world/)

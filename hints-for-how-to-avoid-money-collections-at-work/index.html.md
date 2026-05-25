@@ -42,16 +42,16 @@ Collections are a nice idea, but can quickly get out of control and end up costi
 
 ## Related Posts
 
-- [freeloading friend](https://money.allwomenstalk.com/best-ways-to-deal-with-a-moocher/)
-- [freehost valencia](https://money.allwomenstalk.com/lessons-you-learn-while-living-paycheck-to-paycheck/)
-- [why credit matters](https://money.allwomenstalk.com/situations-when-your-credit-matters-the-most/)
-- [spending personality](https://money.allwomenstalk.com/things-your-credit-card-says-about-your-spending-personality/)
+- [how to live on half your income](https://money.allwomenstalk.com/single-here-are-ways-to-live-off-half-your-income/)
 - [where can i get help with money](https://money.allwomenstalk.com/tips-on-asking-for-financial-help/)
+- [once you know how to ____________ money your money...](https://money.allwomenstalk.com/ways-to-stop-letting-money-control-your-life/)
 - [signs of a frugal person](https://money.allwomenstalk.com/obvious-signs-youre-becoming-less-frugal-with-your-money/)
 - [why debt is bad](https://money.allwomenstalk.com/reasons-why-debt-is-bad-for-you/)
-- [how to live on half your income](https://money.allwomenstalk.com/single-here-are-ways-to-live-off-half-your-income/)
+- [freehost valencia](https://money.allwomenstalk.com/lessons-you-learn-while-living-paycheck-to-paycheck/)
+- [spending personality](https://money.allwomenstalk.com/things-your-credit-card-says-about-your-spending-personality/)
+- [freeloading friend](https://money.allwomenstalk.com/best-ways-to-deal-with-a-moocher/)
+- [why credit matters](https://money.allwomenstalk.com/situations-when-your-credit-matters-the-most/)
 - [cash money  marvelous](https://money.allwomenstalk.com/money-mantras-you-need-to-adopt-in/)
-- [once you know how to ____________ money your money...](https://money.allwomenstalk.com/ways-to-stop-letting-money-control-your-life/)
 - [7 Budgeting Tips to save You Money ...](https://money.allwomenstalk.com/budgeting-tips-to-save-you-money/)
 - [7 Best Ways to Get out of Debt ...](https://money.allwomenstalk.com/best-ways-to-get-out-of-debt/)
 

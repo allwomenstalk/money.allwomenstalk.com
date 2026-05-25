@@ -44,14 +44,14 @@ Truthfully, your rich friends are just like you. They may not deal with a lot of
 
 - [personal loan mistakes](https://money.allwomenstalk.com/common-loans-mistakes-you-should-not-make/)
 - [ways to increase your credit rating](https://money.allwomenstalk.com/ways-to-improve-your-credit-rating/)
-- [excuses to get money from parents](https://money.allwomenstalk.com/bad-excuses-that-can-wreck-your-finances/)
 - [7 reasons to check your credit report](https://money.allwomenstalk.com/excellent-reasons-to-check-your-credit-today/)
-- [best credit card for lifestyle](https://money.allwomenstalk.com/best-credit-cards-for-different-lifestyles/)
-- [used car buying mistakes](https://lifestyle.allwomenstalk.com/car-buying-mistakes-and-how-to-avoid-them/)
-- [what they dont teach you about money](https://money.allwomenstalk.com/things-your-parents-didnt-teach-you-about-money/)
+- [excuses to get money from parents](https://money.allwomenstalk.com/bad-excuses-that-can-wreck-your-finances/)
 - [homebudget with sync](https://apps.allwomenstalk.com/fantastic-apps-for-personal-finance-and-budgeting/)
+- [what they dont teach you about money](https://money.allwomenstalk.com/things-your-parents-didnt-teach-you-about-money/)
 - [how to separate business and personal finances](https://money.allwomenstalk.com/ways-to-run-your-personal-finances-like-a-business/)
+- [best credit card for lifestyle](https://money.allwomenstalk.com/best-credit-cards-for-different-lifestyles/)
 - [financial buddy reviews](https://money.allwomenstalk.com/things-to-look-for-in-a-financial-buddy/)
+- [used car buying mistakes](https://lifestyle.allwomenstalk.com/car-buying-mistakes-and-how-to-avoid-them/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
 - [7 Things That No-One Told You about Getting Older ...](https://allwomenstalk.com/7-things-that-no-one-told-you-about-getting-older/)
 

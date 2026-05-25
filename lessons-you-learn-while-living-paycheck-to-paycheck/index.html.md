@@ -42,16 +42,16 @@ There's no reason to feel ashamed or embarrassed if you're living paycheck to pa
 
 ## Related Posts
 
-- [why debt is bad](https://money.allwomenstalk.com/reasons-why-debt-is-bad-for-you/)
-- [how to live on half your income](https://money.allwomenstalk.com/single-here-are-ways-to-live-off-half-your-income/)
-- [once you know how to ____________ money your money...](https://money.allwomenstalk.com/ways-to-stop-letting-money-control-your-life/)
 - [where can i get help with money](https://money.allwomenstalk.com/tips-on-asking-for-financial-help/)
+- [once you know how to ____________ money your money...](https://money.allwomenstalk.com/ways-to-stop-letting-money-control-your-life/)
 - [maxed out credit card outfit](https://money.allwomenstalk.com/types-of-people-who-should-avoid-credit-cards/)
-- [why credit matters](https://money.allwomenstalk.com/situations-when-your-credit-matters-the-most/)
+- [credit knowledge experts](https://money.allwomenstalk.com/clueless-about-credit-tips-to-boost-your-knowledge/)
 - [signs of a frugal person](https://money.allwomenstalk.com/obvious-signs-youre-becoming-less-frugal-with-your-money/)
 - [spending personality](https://money.allwomenstalk.com/things-your-credit-card-says-about-your-spending-personality/)
 - [cash money  marvelous](https://money.allwomenstalk.com/money-mantras-you-need-to-adopt-in/)
-- [credit knowledge experts](https://money.allwomenstalk.com/clueless-about-credit-tips-to-boost-your-knowledge/)
+- [why debt is bad](https://money.allwomenstalk.com/reasons-why-debt-is-bad-for-you/)
+- [why credit matters](https://money.allwomenstalk.com/situations-when-your-credit-matters-the-most/)
+- [how to live on half your income](https://money.allwomenstalk.com/single-here-are-ways-to-live-off-half-your-income/)
 - [7 Tips on Saving Money ...](https://allwomenstalk.com/7-tips-on-saving-money/)
 - [7 Tips for Budgeting Your Finances ...](https://allwomenstalk.com/7-tips-for-budgeting-your-finances/)
 

@@ -98,16 +98,16 @@ P.S., You can read Emily's tips for saving [here](https://cupcakesandcashmere.co
 
 ## Related Posts
 
-- [le stylo amber rush](https://inspiration.allwomenstalk.com/how-to-increase-your-self-worth-for-women-feeling-insecure/)
-- [how to be less shy and more confident](https://inspiration.allwomenstalk.com/perfect-strategies-for-shy-girls-to-gain-more-confidence/)
-- [things to accept](https://inspiration.allwomenstalk.com/how-to-feel-worthy-of-good-things-in-life-for-women-struggling-to-accept-themselves/)
-- [modern princesses](https://inspiration.allwomenstalk.com/the-rules-all-modern-day-princesses-follow/)
-- [wantab](https://diet.allwomenstalk.com/healthy-habits-for-girls-who-want-ab-definition/)
 - [perfect girl categories](https://lifestyle.allwomenstalk.com/the-personality-types-you-need-to-befriend-to-make-up-the-perfect-girl-crew/)
+- [le stylo amber rush](https://inspiration.allwomenstalk.com/how-to-increase-your-self-worth-for-women-feeling-insecure/)
 - [dating girls app](https://apps.allwomenstalk.com/dating-app-hacks-all-girls-who-swipe-should-know/)
-- [double standerd](https://lifestyle.allwomenstalk.com/double-standards-you-didnt-know-women-experience-every-day/)
 - [francis bacon tattoo](https://beauty.allwomenstalk.com/the-best-meaningful-tattoos-to-get-for-girls-craving-some-ink/)
+- [modern princesses](https://inspiration.allwomenstalk.com/the-rules-all-modern-day-princesses-follow/)
 - [be body smart](https://health.allwomenstalk.com/things-women-need-to-know-to-be-body-smart/)
+- [things to accept](https://inspiration.allwomenstalk.com/how-to-feel-worthy-of-good-things-in-life-for-women-struggling-to-accept-themselves/)
+- [how to be less shy and more confident](https://inspiration.allwomenstalk.com/perfect-strategies-for-shy-girls-to-gain-more-confidence/)
+- [double standerd](https://lifestyle.allwomenstalk.com/double-standards-you-didnt-know-women-experience-every-day/)
+- [wantab](https://diet.allwomenstalk.com/healthy-habits-for-girls-who-want-ab-definition/)
 - [7 Beauty Budgeting Tips That Every Girl Can Use .....](https://beauty.allwomenstalk.com/beauty-budgeting-tips-that-every-girl-can-use/)
 - [11 Marvelous Money-saving Tips That Every Girl Nee...](https://money.allwomenstalk.com/marvelous-money-saving-tips-that-every-girl-needs-to-know/)
 

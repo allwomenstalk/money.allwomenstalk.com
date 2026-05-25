@@ -42,16 +42,16 @@ It is common to wish to be a millionaire and solve all of your problems, but try
 
 ## Related Posts
 
-- [mary poppins i never explain anything](https://inspiration.allwomenstalk.com/lessons-you-can-learn-from-mary-poppins/)
-- [how to be the most confident person](https://inspiration.allwomenstalk.com/traits-of-confident-people-to-emulate/)
-- [people are quick to judge](https://inspiration.allwomenstalk.com/categories-of-people-we-shouldnt-be-so-quick-to-judge/)
-- [colorgenics cube test](https://inspiration.allwomenstalk.com/personality-tests-you-can-take-online/)
-- [true facts about friendship](https://lifestyle.allwomenstalk.com/friendship-myths-that-arent-true/)
-- [summary of pride and prejudice in 500 words](https://books.allwomenstalk.com/lessons-we-can-learn-from-jane-austen-today/)
-- [mindy kaling height in feet](https://inspiration.allwomenstalk.com/life-lessons-from-mindy-kaling/)
-- [fables morals](https://books.allwomenstalk.com/of-aesops-fables-and-the-lessons-they-teach/)
 - [things that are a mystery](https://lifestyle.allwomenstalk.com/seemingly-simple-things-that-are-still-a-mystery/)
+- [mindy kaling height in feet](https://inspiration.allwomenstalk.com/life-lessons-from-mindy-kaling/)
+- [how to be the most confident person](https://inspiration.allwomenstalk.com/traits-of-confident-people-to-emulate/)
 - [lady gaga myers briggs](https://lifestyle.allwomenstalk.com/fantastic-things-we-can-learn-from-lady-gaga/)
+- [fables morals](https://books.allwomenstalk.com/of-aesops-fables-and-the-lessons-they-teach/)
+- [mary poppins i never explain anything](https://inspiration.allwomenstalk.com/lessons-you-can-learn-from-mary-poppins/)
+- [summary of pride and prejudice in 500 words](https://books.allwomenstalk.com/lessons-we-can-learn-from-jane-austen-today/)
+- [true facts about friendship](https://lifestyle.allwomenstalk.com/friendship-myths-that-arent-true/)
+- [colorgenics cube test](https://inspiration.allwomenstalk.com/personality-tests-you-can-take-online/)
+- [people are quick to judge](https://inspiration.allwomenstalk.com/categories-of-people-we-shouldnt-be-so-quick-to-judge/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
 - [7 Things You Should Not Share ...](https://allwomenstalk.com/7-things-you-should-not-share/)
 

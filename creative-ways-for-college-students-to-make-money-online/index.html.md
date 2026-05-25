@@ -74,16 +74,16 @@ There are tons of different ways to make money online by using the skills you're
 
 ## Related Posts
 
-- [acing the exam](https://lifestyle.allwomenstalk.com/secrets-for-acing-your-next-exam/)
-- [does study cause stress](https://lifestyle.allwomenstalk.com/main-causes-of-stress-in-college-students/)
+- [skills that you learn in college](https://lifestyle.allwomenstalk.com/life-lessons-you-learn-in-college/)
+- [whats the freshman 15](https://weightloss.allwomenstalk.com/ways-college-students-can-lose-the-freshman-15/)
+- [vacation photo fails](https://lifestyle.allwomenstalk.com/ways-to-study-over-summer-vacation/)
+- [things i wish i knew](https://lifestyle.allwomenstalk.com/things-i-wish-i-knew-in-high-school/)
 - [types of campus](https://lifestyle.allwomenstalk.com/types-of-students-youll-find-around-your-college-campus/)
 - [things to consider when picking a college](https://lifestyle.allwomenstalk.com/things-to-consider-when-choosing-a-college/)
-- [things i wish i knew](https://lifestyle.allwomenstalk.com/things-i-wish-i-knew-in-high-school/)
-- [whats the freshman 15](https://weightloss.allwomenstalk.com/ways-college-students-can-lose-the-freshman-15/)
-- [best organization apps for college students](https://apps.allwomenstalk.com/apps-for-students-to-stay-organized-in-college/)
-- [vacation photo fails](https://lifestyle.allwomenstalk.com/ways-to-study-over-summer-vacation/)
+- [acing the exam](https://lifestyle.allwomenstalk.com/secrets-for-acing-your-next-exam/)
 - [how to prepare for a masters](https://lifestyle.allwomenstalk.com/tips-for-getting-a-masters-degree/)
-- [skills that you learn in college](https://lifestyle.allwomenstalk.com/life-lessons-you-learn-in-college/)
+- [best organization apps for college students](https://apps.allwomenstalk.com/apps-for-students-to-stay-organized-in-college/)
+- [does study cause stress](https://lifestyle.allwomenstalk.com/main-causes-of-stress-in-college-students/)
 - [8 Best Ways to Make Money Online ...](https://money.allwomenstalk.com/best-ways-to-make-money-online/)
 - [50 Best Ways to Make Money ...](https://lifestyle.allwomenstalk.com/best-ways-to-make-money/)
 

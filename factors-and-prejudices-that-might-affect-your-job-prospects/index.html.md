@@ -42,16 +42,16 @@ I’m sorry if this is all negative. I’m not a raving feminist but I do believ
 
 ## Related Posts
 
-- [7 Tips for Getting along with Your Boss ...](https://money.allwomenstalk.com/tips-for-getting-along-with-your-boss/)
-- [Dont Make a Mistake during Salary Negotiations ...](https://money.allwomenstalk.com/salary-negotiation-mistakes-you-should-avoid/)
-- [websites to help you find a career](https://money.allwomenstalk.com/best-websites-for-your-career/)
-- [9 Fun Time Management Tips for Productive Work Sch...](https://lifestyle.allwomenstalk.com/fun-time-management-tips-for-productive-work-schedules/)
+- [7 Ways to Turn Unemployment into a Positive Situat...](https://money.allwomenstalk.com/ways-to-turn-unemployment-into-a-positive-situation/)
 - [7 Crucial Steps in Changing Your Career ...](https://money.allwomenstalk.com/crucial-steps-in-changing-your-career/)
 - [7 Tips for Choosing a New Career ...](https://money.allwomenstalk.com/tips-for-choosing-a-new-career/)
-- [7 Ways to Turn Unemployment into a Positive Situat...](https://money.allwomenstalk.com/ways-to-turn-unemployment-into-a-positive-situation/)
-- [7 Important Things You Need to do before a Job Int...](https://money.allwomenstalk.com/important-things-you-need-to-do-before-a-job-interview/)
+- [websites to help you find a career](https://money.allwomenstalk.com/best-websites-for-your-career/)
+- [9 Fun Time Management Tips for Productive Work Sch...](https://lifestyle.allwomenstalk.com/fun-time-management-tips-for-productive-work-schedules/)
+- [7 Tips for Getting along with Your Boss ...](https://money.allwomenstalk.com/tips-for-getting-along-with-your-boss/)
+- [Dont Make a Mistake during Salary Negotiations ...](https://money.allwomenstalk.com/salary-negotiation-mistakes-you-should-avoid/)
 - [Fix These Flaws if You Want to Be Successful at Wo...](https://money.allwomenstalk.com/flaws-you-should-fix-if-you-want-to-be-successful-at-work/)
 - [7 Tips to Help Launch Your Career ...](https://money.allwomenstalk.com/tips-to-help-launch-your-career/)
+- [7 Important Things You Need to do before a Job Int...](https://money.allwomenstalk.com/important-things-you-need-to-do-before-a-job-interview/)
 - [7 Ways to Make a Good First Impression at an Inter...](https://allwomenstalk.com/7-ways-to-make-a-good-first-impression-at-an-interview/)
 - [7 Things to Remember when on the Job ...](https://allwomenstalk.com/7-things-to-remember-when-on-the-job/)
 

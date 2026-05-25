@@ -44,16 +44,16 @@ What are other good reasons for being frugal?
 
 ## Related Posts
 
-- [living on a small budget](https://money.allwomenstalk.com/amazing-ways-to-live-large-on-a-small-budget/)
-- [reasonable college budget](https://money.allwomenstalk.com/places-to-shop-on-a-college-budget/)
+- [best cheap shoes](https://shoes.allwomenstalk.com/reasons-buying-cheap-shoes-is-a-false-economy/)
 - [how to stop going out to eat](https://food.allwomenstalk.com/best-tricks-and-ways-to-eat-out-for-cheap/)
 - [girls night out accessories](https://lifestyle.allwomenstalk.com/inexpensive-but-fun-girls-night-out-ideas/)
-- [what is a refurbished computer](https://money.allwomenstalk.com/ways-to-save-money-when-buying-a-computer/)
-- [shop like a pro](https://fashion.allwomenstalk.com/brilliant-ways-to-shop-like-a-pro/)
+- [reasonable college budget](https://money.allwomenstalk.com/places-to-shop-on-a-college-budget/)
+- [living on a small budget](https://money.allwomenstalk.com/amazing-ways-to-live-large-on-a-small-budget/)
 - [how to handle shopping addiction](https://money.allwomenstalk.com/the-best-things-you-can-do-to-beat-a-mild-shopping-addiction/)
-- [best cheap shoes](https://shoes.allwomenstalk.com/reasons-buying-cheap-shoes-is-a-false-economy/)
-- [how do you spend your allowance](https://money.allwomenstalk.com/worst-ways-to-spend-your-allowance/)
 - [enjoy the culture](https://lifestyle.allwomenstalk.com/ways-to-enjoy-culture-cheaply/)
+- [what is a refurbished computer](https://money.allwomenstalk.com/ways-to-save-money-when-buying-a-computer/)
+- [how do you spend your allowance](https://money.allwomenstalk.com/worst-ways-to-spend-your-allowance/)
+- [shop like a pro](https://fashion.allwomenstalk.com/brilliant-ways-to-shop-like-a-pro/)
 - [7 Reasons Why a Girl Can Never Have Enough Bags .....](https://bags.allwomenstalk.com/7-reasons-why-a-girl-can-never-have-enough-bags/)
 - [Kick-Ass Money Tips for Girls Who Want to Splurge ...](https://money.allwomenstalk.com/healthy-and-cost-effective-ways-to-splurge/)
 

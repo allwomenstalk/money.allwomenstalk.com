@@ -42,16 +42,16 @@ These are 7 ways you can save money at Starbucks. Do you have any money saving S
 
 ## Related Posts
 
-- [light gains make a heavy purse](https://bags.allwomenstalk.com/steps-to-lightening-up-your-heavy-purse/)
 - [double wrap chipotle](https://food.allwomenstalk.com/chipotle-hacks-to-get-the-most-for-your-money/)
 - [starbucks hacks to save money](https://food.allwomenstalk.com/starbucks-hacks-to-help-you-save-money/)
 - [grocery shopping for one on a budget](https://money.allwomenstalk.com/the-best-grocery-shopping-money-saving-tips-for-single-girls/)
-- [signs of a frugal person](https://money.allwomenstalk.com/habits-of-frugal-women-with-tons-of-cash/)
 - [salon saving](https://hair.allwomenstalk.com/how-to-save-money-at-the-hair-salon/)
+- [signs of a frugal person](https://money.allwomenstalk.com/habits-of-frugal-women-with-tons-of-cash/)
+- [saving money infographic](https://money.allwomenstalk.com/infographics-thatll-save-you-tons-of-money/)
 - [bringing your own nail polish to salon](https://nails.allwomenstalk.com/how-to-save-money-at-the-nail-salon/)
 - [sephora points system](https://beauty.allwomenstalk.com/use-these-money-saving-hacks-when-you-shop-at-sephora/)
 - [grocery list for young adults](https://teen.allwomenstalk.com/real-world-101-how-to-grocery-shop-like-an-adult/)
-- [saving money infographic](https://money.allwomenstalk.com/infographics-thatll-save-you-tons-of-money/)
+- [light gains make a heavy purse](https://bags.allwomenstalk.com/steps-to-lightening-up-your-heavy-purse/)
 - [7 Ways to save Money on Eating out ...](https://money.allwomenstalk.com/ways-to-save-money-on-eating-out/)
 - [7 Amazingly Great Tips on How to Effectively save ...](https://money.allwomenstalk.com/amazingly-great-tips-on-how-to-effectively-save-on-food/)
 

@@ -42,15 +42,15 @@ The truth is, it is possible to hang out with people who earn more than you. If 
 
 ## Related Posts
 
+- [nurturing friendship](https://inspiration.allwomenstalk.com/ways-to-nurture-friendships-that-you-should-consider/)
+- [socially awkward situations](https://lifestyle.allwomenstalk.com/socially-awkward-situations-everyone-goes-through-and-how-to-handle-them/)
+- [being judged by family](https://lifestyle.allwomenstalk.com/ways-to-cope-with-critical-family-members/)
+- [how to tell a lender no](https://money.allwomenstalk.com/ways-to-politely-turn-down-requests-for-money/)
 - [friends with coworkers](https://inspiration.allwomenstalk.com/tips-on-how-to-be-good-friends-with-your-co-workers/)
 - [one who brags](https://inspiration.allwomenstalk.com/ways-to-deal-with-someone-who-brags/)
-- [being judged by family](https://lifestyle.allwomenstalk.com/ways-to-cope-with-critical-family-members/)
-- [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
-- [nurturing friendship](https://inspiration.allwomenstalk.com/ways-to-nurture-friendships-that-you-should-consider/)
-- [how to tell a lender no](https://money.allwomenstalk.com/ways-to-politely-turn-down-requests-for-money/)
-- [socially awkward situations](https://lifestyle.allwomenstalk.com/socially-awkward-situations-everyone-goes-through-and-how-to-handle-them/)
-- [how to tame a brat over text](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-bratty-friend/)
 - [receive a compliment](https://inspiration.allwomenstalk.com/dos-and-donts-to-remember-when-you-receive-a-compliment/)
+- [how to tame a brat over text](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-bratty-friend/)
+- [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
 - [jocelyn peck](https://lifestyle.allwomenstalk.com/tips-for-when-people-make-fun-of-you-for-not-partying/)
 - [7 Relationship Tips for Your BFFS ...](https://lifestyle.allwomenstalk.com/7-relationship-tips-for-your-bffs/)
 - [7 Outrageously Excellent Ways to Find New Friends ...](https://lifestyle.allwomenstalk.com/outrageously-excellent-ways-to-find-new-friends/)

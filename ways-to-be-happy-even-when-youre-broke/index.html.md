@@ -74,16 +74,16 @@ These'er 10 ways to be happy when you’re broke. How do you keep finances from 
 
 ## Related Posts
 
-- [how to make a choice](https://lifestyle.allwomenstalk.com/methods-you-can-use-to-make-decisions/)
-- [happier and healthier](https://inspiration.allwomenstalk.com/ways-to-be-happier-healthier-and-more-successful/)
-- [napoleon hill goal setting](https://inspiration.allwomenstalk.com/whats-standing-in-the-way-of-your-success-according-to-napoleon-hill/)
-- [bucket list of life goals](https://inspiration.allwomenstalk.com/bye-bye-bucket-list-how-to-make-a-goals-list-instead/)
-- [life hacks funny](https://funny.allwomenstalk.com/common-sense-life-hacks-thatll-make-you-laugh/)
-- [fortune cookie quotes motivational](https://inspiration.allwomenstalk.com/motivational-fortune-cookies-thatll-help-you-succeed/)
-- [improve yourself](https://inspiration.allwomenstalk.com/practical-ways-to-improve-yourself-starting-today/)
 - [how to be a good adult](https://inspiration.allwomenstalk.com/how-to-become-better-at-being-an-adult/)
+- [bucket list of life goals](https://inspiration.allwomenstalk.com/bye-bye-bucket-list-how-to-make-a-goals-list-instead/)
+- [napoleon hill goal setting](https://inspiration.allwomenstalk.com/whats-standing-in-the-way-of-your-success-according-to-napoleon-hill/)
 - [i promise too](https://inspiration.allwomenstalk.com/promises-to-make-yourself-if-you-want-to-be-successful/)
+- [happier and healthier](https://inspiration.allwomenstalk.com/ways-to-be-happier-healthier-and-more-successful/)
+- [fortune cookie quotes motivational](https://inspiration.allwomenstalk.com/motivational-fortune-cookies-thatll-help-you-succeed/)
+- [life hacks funny](https://funny.allwomenstalk.com/common-sense-life-hacks-thatll-make-you-laugh/)
 - [infographic examples about yourself](https://inspiration.allwomenstalk.com/infographics-thatll-help-you-learn-to-love-yourself/)
+- [how to make a choice](https://lifestyle.allwomenstalk.com/methods-you-can-use-to-make-decisions/)
+- [improve yourself](https://inspiration.allwomenstalk.com/practical-ways-to-improve-yourself-starting-today/)
 - [10 Ways to Be Happier in the New Year ...](https://health.allwomenstalk.com/ways-to-be-happier-in-the-new-year/)
 - [10 Ways to Make Yourself Feel Happier Every Day .....](https://allwomenstalk.com/10-ways-to-make-yourself-feel-happier-every-day/)
 

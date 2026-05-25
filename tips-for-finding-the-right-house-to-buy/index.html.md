@@ -46,16 +46,16 @@ Choosing a home is exciting, but it will also affect your life in many ways. So 
 
 ## Related Posts
 
-- [things to look for in a roommate](https://lifestyle.allwomenstalk.com/crucial-things-to-consider-when-youre-choosing-a-roommate/)
-- [all my roommates live](https://lifestyle.allwomenstalk.com/tips-for-living-with-roommates-without-killing-them/)
-- [what percentage is house poor](https://money.allwomenstalk.com/practical-things-to-do-if-youre-house-poor/)
-- [advantages and disadvantages of living with your p...](https://lifestyle.allwomenstalk.com/benefits-of-living-with-parents-instead-of-dorming/)
 - [questions to ask roomates](https://lifestyle.allwomenstalk.com/essential-questions-to-ask-prospective-roommates/)
-- [live by your own](https://money.allwomenstalk.com/incredible-ways-to-live-alone-without-going-broke/)
-- [im in love with my roommate](https://love.allwomenstalk.com/tips-on-dealing-with-a-crush-on-your-roommate/)
-- [pros and cons of moving in together](https://love.allwomenstalk.com/pros-cons-of-moving-in-before-marriage/)
-- [moving out of my parents house](https://lifestyle.allwomenstalk.com/tips-when-moving-out-of-your-parents-house/)
+- [all my roommates live](https://lifestyle.allwomenstalk.com/tips-for-living-with-roommates-without-killing-them/)
+- [advantages and disadvantages of living with your p...](https://lifestyle.allwomenstalk.com/benefits-of-living-with-parents-instead-of-dorming/)
 - [furnish anything](https://lifestyle.allwomenstalk.com/ways-to-furnish-your-first-home-for-free/)
+- [things to look for in a roommate](https://lifestyle.allwomenstalk.com/crucial-things-to-consider-when-youre-choosing-a-roommate/)
+- [im in love with my roommate](https://love.allwomenstalk.com/tips-on-dealing-with-a-crush-on-your-roommate/)
+- [what percentage is house poor](https://money.allwomenstalk.com/practical-things-to-do-if-youre-house-poor/)
+- [live by your own](https://money.allwomenstalk.com/incredible-ways-to-live-alone-without-going-broke/)
+- [moving out of my parents house](https://lifestyle.allwomenstalk.com/tips-when-moving-out-of-your-parents-house/)
+- [pros and cons of moving in together](https://love.allwomenstalk.com/pros-cons-of-moving-in-before-marriage/)
 - [8 Points to Remember when Choosing a House ...](https://allwomenstalk.com/8-points-to-remember-when-choosing-a-house/)
 - [7 Tips on Buying a New Car ...](https://allwomenstalk.com/7-tips-on-buying-a-new-car/)
 

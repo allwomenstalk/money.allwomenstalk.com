@@ -42,16 +42,16 @@ Budgeting is definitely one of my least favorite things to do, but when you can 
 
 ## Related Posts
 
+- [smart grocery shopping](https://food.allwomenstalk.com/tips-for-smart-grocery-shopping/)
 - [half price text books](https://money.allwomenstalk.com/alternatives-to-paying-full-price-for-textbooks/)
+- [how to renew your wardrobe](https://fashion.allwomenstalk.com/low-cost-ways-to-renew-your-wardrobe/)
+- [luxury lifestyle on a budget](https://money.allwomenstalk.com/luxuries-you-cant-afford-on-a-budget/)
+- [eco friendly ways to save money](https://money.allwomenstalk.com/eco-friendly-ways-to-save-money/)
+- [paypal save money](https://money.allwomenstalk.com/ways-paypal-can-help-you-save-more-money-this-year/)
 - [if you are not willing to downgrade your lifestyle...](https://money.allwomenstalk.com/ways-to-downgrade-your-budget-this-year/)
 - [good manners ice cream](https://lifestyle.allwomenstalk.com/ways-manners-help-you-to-get-what-you-want-when-you-are-shopping/)
-- [eco friendly ways to save money](https://money.allwomenstalk.com/eco-friendly-ways-to-save-money/)
 - [looking for ways to save money you can save money ...](https://lifestyle.allwomenstalk.com/tips-for-grooming-your-dog-at-home-to-save-money/)
-- [how to renew your wardrobe](https://fashion.allwomenstalk.com/low-cost-ways-to-renew-your-wardrobe/)
-- [smart grocery shopping](https://food.allwomenstalk.com/tips-for-smart-grocery-shopping/)
-- [paypal save money](https://money.allwomenstalk.com/ways-paypal-can-help-you-save-more-money-this-year/)
 - [types of discounts for auto insurance](https://money.allwomenstalk.com/car-insurance-discounts-that-you-might-not-know-about/)
-- [luxury lifestyle on a budget](https://money.allwomenstalk.com/luxuries-you-cant-afford-on-a-budget/)
 - [7 Ways to Create a Budget ...](https://money.allwomenstalk.com/ways-to-create-a-budget/)
 - [7 Budgeting Tips to save You Money ...](https://money.allwomenstalk.com/budgeting-tips-to-save-you-money/)
 

@@ -28,16 +28,16 @@ The bottom line is that you need to set a budget for yourself, one that takes th
 
 ## Related Posts
 
-- [out-of-pocket expenses](https://health.allwomenstalk.com/what-do-out-of-pocket-expenses-mean/)
+- [financial basics everyone should know](https://money.allwomenstalk.com/basics-of-finance-everyone-should-know/)
+- [think of 3 important decisions you will make that ...](https://money.allwomenstalk.com/the-most-important-financial-decisions-you-will-make-in-your-life/)
+- [financial advice for familes](https://money.allwomenstalk.com/financial-planning-tips-for-families/)
+- [non mortgage installment loan example](https://money.allwomenstalk.com/what-are-installment-loans/)
 - [personal finance for college students](https://money.allwomenstalk.com/useful-personal-finance-lessons-for-college-students/)
 - [advice from billionaires](https://money.allwomenstalk.com/advice-to-graduates-from-billionaires/)
-- [financial basics everyone should know](https://money.allwomenstalk.com/basics-of-finance-everyone-should-know/)
-- [financial advice for familes](https://money.allwomenstalk.com/financial-planning-tips-for-families/)
-- [think of 3 important decisions you will make that ...](https://money.allwomenstalk.com/the-most-important-financial-decisions-you-will-make-in-your-life/)
-- [non mortgage installment loan example](https://money.allwomenstalk.com/what-are-installment-loans/)
-- [best investing options for beginners](https://allwomenstalk.com/best-investing-options-for-beginners/)
-- [paid surveys for women](https://money.allwomenstalk.com/try-these-paid-surveys-to-make-some-extra-cash/)
 - [how much profit do dealerships make on used cars](https://allwomenstalk.com/what-is-the-dealer-markup-on-used-cars/)
+- [best investing options for beginners](https://allwomenstalk.com/best-investing-options-for-beginners/)
+- [out-of-pocket expenses](https://health.allwomenstalk.com/what-do-out-of-pocket-expenses-mean/)
+- [paid surveys for women](https://money.allwomenstalk.com/try-these-paid-surveys-to-make-some-extra-cash/)
 - [7 Tips for Budgeting Your Finances ...](https://allwomenstalk.com/7-tips-for-budgeting-your-finances/)
 - [7 Books to Help You Find Financial Freedom ...](https://allwomenstalk.com/books-to-help-you-find-financial-freedom/)
 

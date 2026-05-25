@@ -42,15 +42,15 @@ We live in tough economic times, and as more people deal with layoffs and other 
 
 ## Related Posts
 
-- [nurturing friendship](https://inspiration.allwomenstalk.com/ways-to-nurture-friendships-that-you-should-consider/)
+- [jocelyn peck](https://lifestyle.allwomenstalk.com/tips-for-when-people-make-fun-of-you-for-not-partying/)
+- [being judged by family](https://lifestyle.allwomenstalk.com/ways-to-cope-with-critical-family-members/)
+- [how can you tell your boyfriend is cheating on you](https://love.allwomenstalk.com/gentle-ways-to-tell-your-friend-her-boyfriend-is-cheating/)
 - [stop depending on others](https://inspiration.allwomenstalk.com/ways-to-stop-being-dependent-on-others/)
+- [quotes memory friendship](https://lifestyle.allwomenstalk.com/critical-things-to-remember-when-you-end-a-friendship/)
+- [how to tame a brat over text](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-bratty-friend/)
+- [nurturing friendship](https://inspiration.allwomenstalk.com/ways-to-nurture-friendships-that-you-should-consider/)
 - [why do my parents love my sister more](https://parenting.allwomenstalk.com/ways-to-cope-when-your-parents-prefer-your-sibling/)
 - [receive a compliment](https://inspiration.allwomenstalk.com/dos-and-donts-to-remember-when-you-receive-a-compliment/)
-- [being judged by family](https://lifestyle.allwomenstalk.com/ways-to-cope-with-critical-family-members/)
-- [quotes memory friendship](https://lifestyle.allwomenstalk.com/critical-things-to-remember-when-you-end-a-friendship/)
-- [jocelyn peck](https://lifestyle.allwomenstalk.com/tips-for-when-people-make-fun-of-you-for-not-partying/)
-- [how can you tell your boyfriend is cheating on you](https://love.allwomenstalk.com/gentle-ways-to-tell-your-friend-her-boyfriend-is-cheating/)
-- [how to tame a brat over text](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-bratty-friend/)
 - [when family turns against you](https://teen.allwomenstalk.com/ways-to-cope-if-your-friend-turns-against-you/)
 - [7 Ways to Say No to Your Boss ...](https://lifestyle.allwomenstalk.com/ways-to-say-no-to-your-boss/)
 - [7 Ways to Turn down a Date ...](https://love.allwomenstalk.com/ways-to-turn-down-a-date/)

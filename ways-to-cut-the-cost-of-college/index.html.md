@@ -44,16 +44,16 @@ Top Photo Credit: _Contra Costa Times_
 
 ## Related Posts
 
-- [what to do after high school graduation](https://allwomenstalk.com/7-things-to-do-after-graduation/)
-- [how to raise money for my school](https://allwomenstalk.com/10-easy-ways-to-raise-money-for-your-school/)
-- [emitaz ex boyfriend](https://lifestyle.allwomenstalk.com/7-reasons-to-choose-community-college/)
-- [8 Top Universities ...](https://lifestyle.allwomenstalk.com/top-universities/)
-- [8 Ways to Stay Safe on Campus ...](https://lifestyle.allwomenstalk.com/ways-to-stay-safe-on-campus/)
-- [10 Supplies for College You Will Really Need ...](https://lifestyle.allwomenstalk.com/supplies-for-college-you-will-really-need/)
-- [healthy habits for college students](https://lifestyle.allwomenstalk.com/healthy-habits-to-start-in-college/)
 - [7 Ways to Prep for College ...](https://lifestyle.allwomenstalk.com/7-ways-to-prep-for-college/)
-- [items you use to study](https://allwomenstalk.com/7-supplies-that-make-studying-easier/)
 - [good affordable colleges](https://money.allwomenstalk.com/the-most-affordable-colleges-in-the-usa/)
+- [what to do after high school graduation](https://allwomenstalk.com/7-things-to-do-after-graduation/)
+- [emitaz ex boyfriend](https://lifestyle.allwomenstalk.com/7-reasons-to-choose-community-college/)
+- [healthy habits for college students](https://lifestyle.allwomenstalk.com/healthy-habits-to-start-in-college/)
+- [10 Supplies for College You Will Really Need ...](https://lifestyle.allwomenstalk.com/supplies-for-college-you-will-really-need/)
+- [8 Top Universities ...](https://lifestyle.allwomenstalk.com/top-universities/)
+- [items you use to study](https://allwomenstalk.com/7-supplies-that-make-studying-easier/)
+- [8 Ways to Stay Safe on Campus ...](https://lifestyle.allwomenstalk.com/ways-to-stay-safe-on-campus/)
+- [how to raise money for my school](https://allwomenstalk.com/10-easy-ways-to-raise-money-for-your-school/)
 - [7 Ways to Be Smart when Borrowing Money for Colleg...](https://money.allwomenstalk.com/ways-to-be-smart-when-borrowing-money-for-college/)
 - [7 Ways to Cut the Cost of Car Insurance ...](https://money.allwomenstalk.com/ways-to-cut-the-cost-of-car-insurance/)
 

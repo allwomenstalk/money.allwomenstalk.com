@@ -42,16 +42,16 @@ There is no denying the high cost of college. But if you’re smart with your mo
 
 ## Related Posts
 
-- [7 Money Scams You Need to Know about ...](https://money.allwomenstalk.com/money-scams-you-need-to-know-about/)
-- [7 Crucial Reasons to Fire Your Bank as Soon as Pos...](https://money.allwomenstalk.com/crucial-reasons-to-fire-your-bank-as-soon-as-possible/)
 - [7 Good Reasons to Always Pay Bills Online ...](https://money.allwomenstalk.com/good-reasons-to-always-pay-bills-online/)
-- [7 Everyday Habits That May Leave You Broke ...](https://money.allwomenstalk.com/everyday-habits-that-may-leave-you-broke/)
-- [7 Simple Ways to Start Planning for Retirement Whi...](https://money.allwomenstalk.com/simple-ways-to-start-planning-for-retirement-while-youre-still-young/)
 - [7 Worst Money Lies You Should Stop Telling Yoursel...](https://money.allwomenstalk.com/worst-money-lies-you-should-stop-telling-yourself/)
 - [7 Tips to Beef up Your Small Emergency Fund ...](https://money.allwomenstalk.com/tips-to-beef-up-your-small-emergency-fund/)
+- [7 Money Scams You Need to Know about ...](https://money.allwomenstalk.com/money-scams-you-need-to-know-about/)
+- [7 Crucial Reasons to Fire Your Bank as Soon as Pos...](https://money.allwomenstalk.com/crucial-reasons-to-fire-your-bank-as-soon-as-possible/)
 - [tips for getting the best mortgage rate](https://money.allwomenstalk.com/simple-steps-to-get-the-best-mortgage-rate/)
-- [7 Reasons Why You Shouldnt Help Your Kid Repay His...](https://money.allwomenstalk.com/reasons-why-you-shouldnt-help-your-kid-repay-his-debt/)
 - [ways your identity can be stolen](https://money.allwomenstalk.com/ways-your-stolen-identity-may-be-used/)
+- [7 Everyday Habits That May Leave You Broke ...](https://money.allwomenstalk.com/everyday-habits-that-may-leave-you-broke/)
+- [7 Reasons Why You Shouldnt Help Your Kid Repay His...](https://money.allwomenstalk.com/reasons-why-you-shouldnt-help-your-kid-repay-his-debt/)
+- [7 Simple Ways to Start Planning for Retirement Whi...](https://money.allwomenstalk.com/simple-ways-to-start-planning-for-retirement-while-youre-still-young/)
 - [7 Ways to Cut the Cost of College ...](https://money.allwomenstalk.com/ways-to-cut-the-cost-of-college/)
 - [7 Ways to Be Smart when Borrowing Money for Colleg...](https://money.allwomenstalk.com/ways-to-be-smart-when-borrowing-money-for-college/)
 

@@ -44,16 +44,16 @@ What percentage of your income do you currently spend on housing?
 
 ## Related Posts
 
-- [how to figure out where to move](https://lifestyle.allwomenstalk.com/ways-to-find-the-perfect-city-to-live-in/)
-- [bad roommate fluffy](https://lifestyle.allwomenstalk.com/ways-to-avoid-fights-with-your-roommate/)
-- [how to be the best roommate](https://lifestyle.allwomenstalk.com/simple-ways-to-be-the-best-roommate-ever/)
-- [visitor at home](https://lifestyle.allwomenstalk.com/hospitable-tips-for-making-guests-feel-welcome-in-your-home/)
-- [annoying roommate habits](https://lifestyle.allwomenstalk.com/ways-to-deal-with-an-annoying-roommate/)
-- [how to live with a roommate you dont like](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-less-than-perfect-roommate/)
 - [living on own](https://lifestyle.allwomenstalk.com/pros-of-living-on-your-own-after-college/)
+- [how to figure out where to move](https://lifestyle.allwomenstalk.com/ways-to-find-the-perfect-city-to-live-in/)
+- [what to do before guests arrive](https://lifestyle.allwomenstalk.com/things-to-do-before-having-house-guests/)
 - [moving to new city alone](https://lifestyle.allwomenstalk.com/tips-for-surviving-your-first-year-in-a-new-city/)
 - [things to look for in a roommate](https://lifestyle.allwomenstalk.com/things-to-consider-before-you-get-a-roommate/)
-- [what to do before guests arrive](https://lifestyle.allwomenstalk.com/things-to-do-before-having-house-guests/)
+- [annoying roommate habits](https://lifestyle.allwomenstalk.com/ways-to-deal-with-an-annoying-roommate/)
+- [how to be the best roommate](https://lifestyle.allwomenstalk.com/simple-ways-to-be-the-best-roommate-ever/)
+- [how to live with a roommate you dont like](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-less-than-perfect-roommate/)
+- [visitor at home](https://lifestyle.allwomenstalk.com/hospitable-tips-for-making-guests-feel-welcome-in-your-home/)
+- [bad roommate fluffy](https://lifestyle.allwomenstalk.com/ways-to-avoid-fights-with-your-roommate/)
 - [10 Ways to save Money by Being Frugal ...](https://money.allwomenstalk.com/ways-to-save-money-by-being-frugal/)
 - [7 Sure Ways to save Money ...](https://allwomenstalk.com/7-sure-ways-to-save-money/)
 

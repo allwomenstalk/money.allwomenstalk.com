@@ -42,16 +42,16 @@ Managing your personal finances isn't always easy, but it's not rocket science. 
 
 ## Related Posts
 
-- [cope or drop](https://money.allwomenstalk.com/ways-to-cope-with-a-drop-in-income/)
-- [best credit card for lifestyle](https://money.allwomenstalk.com/best-credit-cards-for-different-lifestyles/)
 - [songs about being broke](https://money.allwomenstalk.com/reasons-why-being-broke-is-a-blessing-in-disguise/)
-- [good excuses to borrow money](https://money.allwomenstalk.com/lame-excuses-for-not-saving-money/)
-- [financial buddy reviews](https://money.allwomenstalk.com/things-to-look-for-in-a-financial-buddy/)
-- [friends money manager](https://money.allwomenstalk.com/ways-to-politely-give-friends-financial-advice/)
-- [does having a job build credit](https://money.allwomenstalk.com/ways-to-build-credit-when-you-work-as-a-freelancer/)
-- [house money pit](https://money.allwomenstalk.com/ways-to-cope-with-a-money-pit/)
-- [how to be financially independent in college](https://money.allwomenstalk.com/ways-to-achieve-financial-independence-after-graduating-college/)
 - [used car buying mistakes](https://lifestyle.allwomenstalk.com/car-buying-mistakes-and-how-to-avoid-them/)
+- [cope or drop](https://money.allwomenstalk.com/ways-to-cope-with-a-drop-in-income/)
+- [friends money manager](https://money.allwomenstalk.com/ways-to-politely-give-friends-financial-advice/)
+- [how to be financially independent in college](https://money.allwomenstalk.com/ways-to-achieve-financial-independence-after-graduating-college/)
+- [house money pit](https://money.allwomenstalk.com/ways-to-cope-with-a-money-pit/)
+- [best credit card for lifestyle](https://money.allwomenstalk.com/best-credit-cards-for-different-lifestyles/)
+- [good excuses to borrow money](https://money.allwomenstalk.com/lame-excuses-for-not-saving-money/)
+- [does having a job build credit](https://money.allwomenstalk.com/ways-to-build-credit-when-you-work-as-a-freelancer/)
+- [financial buddy reviews](https://money.allwomenstalk.com/things-to-look-for-in-a-financial-buddy/)
 - [7 Budgeting Tips to save You Money ...](https://money.allwomenstalk.com/budgeting-tips-to-save-you-money/)
 - [7 Steps to Improve Your Finances ...](https://allwomenstalk.com/7-steps-to-improve-your-finances/)
 

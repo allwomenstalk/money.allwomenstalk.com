@@ -44,16 +44,16 @@ What features do you consider important when shopping for a credit card?
 
 ## Related Posts
 
-- [most interesting degrees](https://lifestyle.allwomenstalk.com/fascinating-degrees-to-consider-majoring-in/)
 - [7 Healthy Things to do Every Day in College This S...](https://health.allwomenstalk.com/healthy-things-to-do-every-day-in-college-this-school-year/)
-- [7 Helpful Hints for Combining Work and Study ...](https://lifestyle.allwomenstalk.com/helpful-hints-for-combing-work-and-study/)
 - [7 Things to Take into Account when Applying to Col...](https://lifestyle.allwomenstalk.com/things-to-take-into-account-when-applying-to-college/)
-- [7 Best Online Resources to Solve Educational Probl...](https://apps.allwomenstalk.com/best-online-resources-to-solve-educational-problems/)
-- [what should colleges teach](https://lifestyle.allwomenstalk.com/absolutely-important-lessons-colleges-should-teach/)
+- [7 Helpful Hints for Combining Work and Study ...](https://lifestyle.allwomenstalk.com/helpful-hints-for-combing-work-and-study/)
 - [study abroad in florence italy tips](https://travel.allwomenstalk.com/useful-tips-for-studying-in-florence/)
-- [7 Ways to Avoid Online Distractions While Doing Ho...](https://lifestyle.allwomenstalk.com/ways-to-avoid-online-distractions-while-doing-homework/)
-- [7 Things You Must do in College to Prepare for a P...](https://lifestyle.allwomenstalk.com/things-you-must-do-in-college-to-prepare-for-a-post-grad-job/)
 - [what can i do to stand out to colleges](https://lifestyle.allwomenstalk.com/best-things-to-do-in-order-to-stand-out-for-colleges/)
+- [most interesting degrees](https://lifestyle.allwomenstalk.com/fascinating-degrees-to-consider-majoring-in/)
+- [7 Things You Must do in College to Prepare for a P...](https://lifestyle.allwomenstalk.com/things-you-must-do-in-college-to-prepare-for-a-post-grad-job/)
+- [7 Best Online Resources to Solve Educational Probl...](https://apps.allwomenstalk.com/best-online-resources-to-solve-educational-problems/)
+- [7 Ways to Avoid Online Distractions While Doing Ho...](https://lifestyle.allwomenstalk.com/ways-to-avoid-online-distractions-while-doing-homework/)
+- [what should colleges teach](https://lifestyle.allwomenstalk.com/absolutely-important-lessons-colleges-should-teach/)
 - [7 Essential Credit Management Rules for Young Cred...](https://money.allwomenstalk.com/essential-credit-management-rules-for-young-credit-card-holders/)
 - [7 Ways to Be Smart when Borrowing Money for Colleg...](https://money.allwomenstalk.com/ways-to-be-smart-when-borrowing-money-for-college/)
 

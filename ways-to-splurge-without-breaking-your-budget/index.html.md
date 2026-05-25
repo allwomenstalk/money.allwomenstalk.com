@@ -43,15 +43,15 @@ Splurging is an excellent way to treat yourself for working hard, and it can als
 ## Related Posts
 
 - [how to stop going out to eat](https://food.allwomenstalk.com/best-tricks-and-ways-to-eat-out-for-cheap/)
-- [one frugal girl](https://money.allwomenstalk.com/reasons-why-you-shouldnt-apologize-for-being-frugal/)
-- [what is a refurbished computer](https://money.allwomenstalk.com/ways-to-save-money-when-buying-a-computer/)
 - [living on a small budget](https://money.allwomenstalk.com/amazing-ways-to-live-large-on-a-small-budget/)
-- [reasonable college budget](https://money.allwomenstalk.com/places-to-shop-on-a-college-budget/)
+- [one frugal girl](https://money.allwomenstalk.com/reasons-why-you-shouldnt-apologize-for-being-frugal/)
 - [how do you spend your allowance](https://money.allwomenstalk.com/worst-ways-to-spend-your-allowance/)
-- [vivian v boyfriend](https://parenting.allwomenstalk.com/ways-to-cut-down-on-prom-costs/)
 - [enjoy the culture](https://lifestyle.allwomenstalk.com/ways-to-enjoy-culture-cheaply/)
-- [what to do instead of buying stuff](https://diy.allwomenstalk.com/things-to-do-instead-of-shopping-for-something-new/)
+- [what is a refurbished computer](https://money.allwomenstalk.com/ways-to-save-money-when-buying-a-computer/)
 - [girls night out accessories](https://lifestyle.allwomenstalk.com/inexpensive-but-fun-girls-night-out-ideas/)
+- [vivian v boyfriend](https://parenting.allwomenstalk.com/ways-to-cut-down-on-prom-costs/)
+- [reasonable college budget](https://money.allwomenstalk.com/places-to-shop-on-a-college-budget/)
+- [what to do instead of buying stuff](https://diy.allwomenstalk.com/things-to-do-instead-of-shopping-for-something-new/)
 - [7 Awesome Ways to Travel on a Budget ...](https://travel.allwomenstalk.com/awesome-ways-to-travel-on-a-budget/)
 - [7 Ways to save Money While Spending It ...](https://money.allwomenstalk.com/ways-to-save-money-while-spending-it/)
 

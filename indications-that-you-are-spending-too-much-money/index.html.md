@@ -46,16 +46,16 @@ Spending too much can not only cause you short-term problems, but have a serious
 
 ## Related Posts
 
-- [whats my hair color](https://hair.allwomenstalk.com/signs-that-you-need-a-hair-color-change/)
-- [what is a diva girl](https://fashion.allwomenstalk.com/signs-youre-a-diva/)
-- [hormones out of wack](https://health.allwomenstalk.com/signs-your-hormones-are-out-of-whack/)
-- [how to compliment new haircut](https://hair.allwomenstalk.com/signs-you-need-a-new-haircut/)
 - [7 Ways to Tell if You Are Gay ...](https://love.allwomenstalk.com/ways-to-tell-if-you-are-gay/)
-- [signs someone is living beyond their means](https://money.allwomenstalk.com/signs-that-youre-living-beyond-your-means/)
+- [what is a diva girl](https://fashion.allwomenstalk.com/signs-youre-a-diva/)
 - [signs of overspending](https://money.allwomenstalk.com/signs-you-are-overspending/)
+- [hormones out of wack](https://health.allwomenstalk.com/signs-your-hormones-are-out-of-whack/)
+- [signs someone is living beyond their means](https://money.allwomenstalk.com/signs-that-youre-living-beyond-your-means/)
+- [whats my hair color](https://hair.allwomenstalk.com/signs-that-you-need-a-hair-color-change/)
+- [how to compliment new haircut](https://hair.allwomenstalk.com/signs-you-need-a-new-haircut/)
+- [how to tell if someone is wearing makeup](https://makeup.allwomenstalk.com/signs-that-you-wear-too-much-makeup/)
 - [signs you maybe pregnant](https://parenting.allwomenstalk.com/signs-you-may-be-pregnant/)
 - [signs of love addiction](https://love.allwomenstalk.com/signs-youre-a-love-addict/)
-- [how to tell if someone is wearing makeup](https://makeup.allwomenstalk.com/signs-that-you-wear-too-much-makeup/)
 - [7 Signs That You Are a Cheapskate ...](https://lifestyle.allwomenstalk.com/7-signs-that-you-are-a-cheapskate/)
 - [8 Ways to Tell Youre a Shopaholic ...](https://allwomenstalk.com/8-ways-to-tell-youre-a-shopaholic/)
 

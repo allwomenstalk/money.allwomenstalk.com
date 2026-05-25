@@ -42,16 +42,16 @@ Money doesn't have to be a scary or taboo topic. If anything, money discussions 
 
 ## Related Posts
 
-- [7 Must-Dos after a Mortgage Loan Pre-Approval ...](https://money.allwomenstalk.com/must-dos-after-a-mortgage-loan-pre-approval/)
-- [crummy credit](https://money.allwomenstalk.com/simple-tricks-to-rent-with-crummy-credit/)
-- [7 Smart Ways to Deal with Paying Your Bills ...](https://money.allwomenstalk.com/smart-ways-to-deal-with-paying-your-bills/)
-- [7 Justifiable Reasons to Dip into Your Emergency F...](https://money.allwomenstalk.com/justifiable-reasons-to-dip-into-your-emergency-fund/)
 - [7 Simple Ways to Avoid Tax Debt Stress ...](https://money.allwomenstalk.com/simple-ways-to-avoid-tax-debt-stress/)
-- [7 Things You Could do with Extra Money ...](https://money.allwomenstalk.com/things-you-could-do-with-extra-money/)
-- [7 Smart Ways to Prevent Identity Theft ...](https://money.allwomenstalk.com/smart-ways-to-prevent-identity-theft/)
-- [what to expect when refinancing mortgage](https://money.allwomenstalk.com/things-to-expect-when-refinancing-your-mortgage/)
-- [7 Mortgage Related Myths That Need to Die ...](https://money.allwomenstalk.com/mortgage-related-myths-that-need-to-die/)
 - [7 Realistic Options when Your Debt is Higher than ...](https://money.allwomenstalk.com/realistic-options-when-your-debt-is-higher-than-your-salary/)
+- [what to expect when refinancing mortgage](https://money.allwomenstalk.com/things-to-expect-when-refinancing-your-mortgage/)
+- [7 Smart Ways to Deal with Paying Your Bills ...](https://money.allwomenstalk.com/smart-ways-to-deal-with-paying-your-bills/)
+- [7 Smart Ways to Prevent Identity Theft ...](https://money.allwomenstalk.com/smart-ways-to-prevent-identity-theft/)
+- [7 Things You Could do with Extra Money ...](https://money.allwomenstalk.com/things-you-could-do-with-extra-money/)
+- [7 Must-Dos after a Mortgage Loan Pre-Approval ...](https://money.allwomenstalk.com/must-dos-after-a-mortgage-loan-pre-approval/)
+- [7 Justifiable Reasons to Dip into Your Emergency F...](https://money.allwomenstalk.com/justifiable-reasons-to-dip-into-your-emergency-fund/)
+- [crummy credit](https://money.allwomenstalk.com/simple-tricks-to-rent-with-crummy-credit/)
+- [7 Mortgage Related Myths That Need to Die ...](https://money.allwomenstalk.com/mortgage-related-myths-that-need-to-die/)
 - [7 Reasons to Blog ...](https://allwomenstalk.com/7-reasons-to-blog/)
 - [7 Reasons Why You Should Read ...](https://allwomenstalk.com/7-reasons-why-you-should-read/)
 

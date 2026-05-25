@@ -52,16 +52,16 @@ Top Image Source: [pcjovenes.us](https://goo.gl/pyosyB)
 
 ## Related Posts
 
-- [8 Financial Resolutions You Should Make in 2013 .....](https://money.allwomenstalk.com/financial-resolutions-you-should-make-in/)
-- [8 Smart Reasons to Build up Your Savings ...](https://money.allwomenstalk.com/smart-reasons-to-build-up-your-savings/)
-- [7 Things to Know about Your Credit Score ...](https://money.allwomenstalk.com/things-to-know-about-your-credit-score/)
-- [7 of the Most Basic Financial Mistakes ...](https://money.allwomenstalk.com/of-the-most-basic-financial-mistakes/)
-- [7 Smart Things to do with Your Tax Refund ...](https://money.allwomenstalk.com/smart-things-to-do-with-your-tax-refund/)
-- [7 Myths of Credit Scores ...](https://money.allwomenstalk.com/myths-of-credit-scores/)
 - [simple saving savvy](https://money.allwomenstalk.com/simple-and-savvy-financial-habits/)
+- [7 Myths of Credit Scores ...](https://money.allwomenstalk.com/myths-of-credit-scores/)
 - [alternative ways to earn money](https://money.allwomenstalk.com/alternative-ways-to-make-money/)
-- [7 Tips to Help Beloved Seniors with Finances ...](https://money.allwomenstalk.com/tips-to-help-beloved-seniors-with-finances/)
+- [8 Financial Resolutions You Should Make in 2013 .....](https://money.allwomenstalk.com/financial-resolutions-you-should-make-in/)
+- [7 of the Most Basic Financial Mistakes ...](https://money.allwomenstalk.com/of-the-most-basic-financial-mistakes/)
+- [7 Things to Know about Your Credit Score ...](https://money.allwomenstalk.com/things-to-know-about-your-credit-score/)
 - [how to lend money to others smart](https://money.allwomenstalk.com/tips-for-smart-borrowing/)
+- [8 Smart Reasons to Build up Your Savings ...](https://money.allwomenstalk.com/smart-reasons-to-build-up-your-savings/)
+- [7 Smart Things to do with Your Tax Refund ...](https://money.allwomenstalk.com/smart-things-to-do-with-your-tax-refund/)
+- [7 Tips to Help Beloved Seniors with Finances ...](https://money.allwomenstalk.com/tips-to-help-beloved-seniors-with-finances/)
 - [8 Smart Tips on How to save Money ...](https://money.allwomenstalk.com/smart-tips-on-how-to-save-money/)
 - [8 Tips on Staying Safe Online ...](https://allwomenstalk.com/8-tips-on-staying-safe-online/)
 

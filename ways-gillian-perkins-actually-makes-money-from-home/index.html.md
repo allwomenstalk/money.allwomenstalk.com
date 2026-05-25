@@ -25,15 +25,15 @@ Good luck and thank you for watching!
 ## Related Posts
 
 - [financial basics everyone should know](https://money.allwomenstalk.com/basics-of-finance-everyone-should-know/)
-- [help paying off debt](https://money.allwomenstalk.com/need-help-paying-off-debt-on-a-low-income-check-this-out/)
-- [non mortgage installment loan example](https://money.allwomenstalk.com/what-are-installment-loans/)
-- [personal finance for college students](https://money.allwomenstalk.com/useful-personal-finance-lessons-for-college-students/)
-- [small mistakes big consequences](https://money.allwomenstalk.com/small-financial-mistakes-with-big-consequences/)
-- [paid surveys for women](https://money.allwomenstalk.com/try-these-paid-surveys-to-make-some-extra-cash/)
-- [out-of-pocket expenses](https://health.allwomenstalk.com/what-do-out-of-pocket-expenses-mean/)
-- [think of 3 important decisions you will make that ...](https://money.allwomenstalk.com/the-most-important-financial-decisions-you-will-make-in-your-life/)
-- [how much profit do dealerships make on used cars](https://allwomenstalk.com/what-is-the-dealer-markup-on-used-cars/)
 - [advice from billionaires](https://money.allwomenstalk.com/advice-to-graduates-from-billionaires/)
+- [help paying off debt](https://money.allwomenstalk.com/need-help-paying-off-debt-on-a-low-income-check-this-out/)
+- [small mistakes big consequences](https://money.allwomenstalk.com/small-financial-mistakes-with-big-consequences/)
+- [think of 3 important decisions you will make that ...](https://money.allwomenstalk.com/the-most-important-financial-decisions-you-will-make-in-your-life/)
+- [personal finance for college students](https://money.allwomenstalk.com/useful-personal-finance-lessons-for-college-students/)
+- [out-of-pocket expenses](https://health.allwomenstalk.com/what-do-out-of-pocket-expenses-mean/)
+- [non mortgage installment loan example](https://money.allwomenstalk.com/what-are-installment-loans/)
+- [paid surveys for women](https://money.allwomenstalk.com/try-these-paid-surveys-to-make-some-extra-cash/)
+- [how much profit do dealerships make on used cars](https://allwomenstalk.com/what-is-the-dealer-markup-on-used-cars/)
 - [5 Tips on Making Money with Your Garden ...](https://gardening.allwomenstalk.com/5-tips-on-making-money-with-your-garden/)
 - [50 Best Ways to Make Money ...](https://lifestyle.allwomenstalk.com/best-ways-to-make-money/)
 

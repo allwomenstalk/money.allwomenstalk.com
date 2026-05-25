@@ -42,16 +42,16 @@ Each day, the majority of us make decisions that essentially flush our money dow
 
 ## Related Posts
 
-- [living on a small budget](https://money.allwomenstalk.com/amazing-ways-to-live-large-on-a-small-budget/)
-- [vivian v boyfriend](https://parenting.allwomenstalk.com/ways-to-cut-down-on-prom-costs/)
-- [ethical grocery stores](https://money.allwomenstalk.com/tips-for-ethical-shopping-at-the-supermarket/)
+- [how to stop going out to eat](https://food.allwomenstalk.com/best-tricks-and-ways-to-eat-out-for-cheap/)
 - [how grocery stores trick you](https://money.allwomenstalk.com/ways-grocery-stores-trick-you-into-spending-more/)
+- [one frugal girl](https://money.allwomenstalk.com/reasons-why-you-shouldnt-apologize-for-being-frugal/)
 - [girls night out accessories](https://lifestyle.allwomenstalk.com/inexpensive-but-fun-girls-night-out-ideas/)
+- [ethical grocery stores](https://money.allwomenstalk.com/tips-for-ethical-shopping-at-the-supermarket/)
+- [vivian v boyfriend](https://parenting.allwomenstalk.com/ways-to-cut-down-on-prom-costs/)
 - [splurge budget](https://money.allwomenstalk.com/ways-to-splurge-without-breaking-your-budget/)
 - [what is a refurbished computer](https://money.allwomenstalk.com/ways-to-save-money-when-buying-a-computer/)
 - [what to do instead of buying stuff](https://diy.allwomenstalk.com/things-to-do-instead-of-shopping-for-something-new/)
-- [how to stop going out to eat](https://food.allwomenstalk.com/best-tricks-and-ways-to-eat-out-for-cheap/)
-- [one frugal girl](https://money.allwomenstalk.com/reasons-why-you-shouldnt-apologize-for-being-frugal/)
+- [living on a small budget](https://money.allwomenstalk.com/amazing-ways-to-live-large-on-a-small-budget/)
 - [7 Ways to save Money While Spending It ...](https://money.allwomenstalk.com/ways-to-save-money-while-spending-it/)
 - [7 Quintessential Things You Shouldnt Needlessly Ec...](https://money.allwomenstalk.com/quintessential-things-you-shouldnt-needlessly-economize-on/)
 
