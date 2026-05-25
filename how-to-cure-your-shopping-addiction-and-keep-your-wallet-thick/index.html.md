@@ -3,7 +3,7 @@ title: "How to Cure Your Shopping Addiction and Keep Your Wallet Thick ..."
 description: "Identify Your Problem; Come up with a Plan; Find Another Escape; Keep Track of Your Spending; Look at Your Online Banking; More ..."
 url: "https://money.allwomenstalk.com/how-to-cure-your-shopping-addiction-and-keep-your-wallet-thick/"
 category: "money"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # How to Cure Your Shopping Addiction and Keep Your Wallet Thick ...
@@ -42,16 +42,16 @@ What are your tips for saving money and curing a shopping addiction? Let me know
 
 ## Related Posts
 
-- [coupon matching sites](https://money.allwomenstalk.com/score-some-deals-with-these-coupon-websites/)
-- [make an extra 100 a week](https://money.allwomenstalk.com/awesome-ways-to-earn-an-extra-100-this-weekend/)
-- [budget infographics](https://money.allwomenstalk.com/money-infographics-that-will-save-your-budget-and-your-hard-earned-cash/)
 - [money stashes](https://money.allwomenstalk.com/clever-and-crafty-tips-for-stashing-your-cash-at-home/)
-- [alternative airports to boston](https://travel.allwomenstalk.com/alternate-airports-that-can-save-you-buckets-of-bucks/)
-- [making frugal fun](https://money.allwomenstalk.com/need-to-save-money-learn-some-fun-frugal-skills/)
-- [genius ways to save money](https://money.allwomenstalk.com/heres-how-to-save-money-without-even-trying/)
-- [cheapest clubbing holidays](https://travel.allwomenstalk.com/how-to-party-hard-on-holiday-without-spending-a-ton-of-cash/)
+- [budget infographics](https://money.allwomenstalk.com/money-infographics-that-will-save-your-budget-and-your-hard-earned-cash/)
+- [coupon matching sites](https://money.allwomenstalk.com/score-some-deals-with-these-coupon-websites/)
 - [cashsavvy](https://money.allwomenstalk.com/get-cash-savvy-with-these-money-saving-infographics/)
+- [make an extra 100 a week](https://money.allwomenstalk.com/awesome-ways-to-earn-an-extra-100-this-weekend/)
 - [you have been saving your allowance](https://teen.allwomenstalk.com/tips-for-saving-spending-your-allowance/)
+- [cheapest clubbing holidays](https://travel.allwomenstalk.com/how-to-party-hard-on-holiday-without-spending-a-ton-of-cash/)
+- [alternative airports to boston](https://travel.allwomenstalk.com/alternate-airports-that-can-save-you-buckets-of-bucks/)
+- [genius ways to save money](https://money.allwomenstalk.com/heres-how-to-save-money-without-even-trying/)
+- [making frugal fun](https://money.allwomenstalk.com/need-to-save-money-learn-some-fun-frugal-skills/)
 - [7 Effective Ways to Tame Your Sweet Cravings ...](https://diet.allwomenstalk.com/effective-ways-to-tame-your-sweet-cravings/)
 - [10 Ways to Lose Weight by Cutting the Budget ...](https://diet.allwomenstalk.com/ways-to-lose-weight-by-cutting-the-budget/)
 

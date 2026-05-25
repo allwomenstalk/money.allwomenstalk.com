@@ -3,7 +3,7 @@ title: "7 Awful Jobs Youll Be Glad You Dont Have ..."
 description: "Hazmat Diver; Leather Tanner; Mortician; Poultry Processor; Crime Scene Cleaner; More ..."
 url: "https://money.allwomenstalk.com/awful-jobs-youll-be-glad-you-dont-have/"
 category: "money"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Awful Jobs Youll Be Glad You Dont Have ...
@@ -56,16 +56,16 @@ Does your job sound great now? These jobs are smelly, dirty and disgusting and, 
 
 ## Related Posts
 
+- [how to gain respect at workplace](https://money.allwomenstalk.com/ways-to-gain-respect-at-work/)
+- [rude interview questions](https://lifestyle.allwomenstalk.com/excellent-answers-for-awkward-interview-questions/)
 - [can you quit a part time job at any time](https://money.allwomenstalk.com/reasons-why-you-shouldnt-abruptly-quit-your-part-time-job/)
-- [tips for phone interviews](https://money.allwomenstalk.com/phone-interview-tips-you-need-to-know-to-get-that-dream-job/)
-- [6 months unemployed](https://money.allwomenstalk.com/reasons-why-youre-still-unemployed-after-several-months/)
-- [skills of a writer](https://books.allwomenstalk.com/skills-of-successful-writers-to-master-today/)
-- [dream meaning of owning a restaurant](https://money.allwomenstalk.com/things-to-consider-if-you-dream-of-opening-a-restaurant/)
 - [passion and career](https://inspiration.allwomenstalk.com/ways-to-grow-your-passion-and-career/)
 - [jewellery interview questions and answers](https://money.allwomenstalk.com/tips-on-how-to-answer-tough-interview-questions/)
-- [rude interview questions](https://lifestyle.allwomenstalk.com/excellent-answers-for-awkward-interview-questions/)
-- [how to gain respect at workplace](https://money.allwomenstalk.com/ways-to-gain-respect-at-work/)
+- [dream meaning of owning a restaurant](https://money.allwomenstalk.com/things-to-consider-if-you-dream-of-opening-a-restaurant/)
+- [tips for phone interviews](https://money.allwomenstalk.com/phone-interview-tips-you-need-to-know-to-get-that-dream-job/)
+- [skills of a writer](https://books.allwomenstalk.com/skills-of-successful-writers-to-master-today/)
 - [creative job interview outfit](https://fashion.allwomenstalk.com/job-interviews-creative-ways-to-dress-up-your-outfit/)
+- [6 months unemployed](https://money.allwomenstalk.com/reasons-why-youre-still-unemployed-after-several-months/)
 - [7 High Paying Jobs That do Not Need a College Degr...](https://lifestyle.allwomenstalk.com/high-paying-jobs-that-do-not-need-a-college-degree/)
 - [7 Ways to Ruin Your Resume ...](https://allwomenstalk.com/7-ways-to-ruin-your-resume/)
 

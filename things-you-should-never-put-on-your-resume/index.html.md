@@ -3,7 +3,7 @@ title: "Things You Should Never Put on Your Resume ..."
 description: "Past Employer Criticism; Excuses; Irrelevant Skills; Old Achievements; Poor Grammar and Spelling; More ..."
 url: "https://money.allwomenstalk.com/things-you-should-never-put-on-your-resume/"
 category: "money"
-last_updated: "2026-05-24"
+last_updated: "2026-05-25"
 ---
 
 # Things You Should Never Put on Your Resume ...
@@ -40,16 +40,16 @@ It is not uncommon for people to exaggerate on their resume. After all, you want
 
 ## Related Posts
 
-- [50 Words That Can Ruin Your Resume ...](https://money.allwomenstalk.com/words-that-can-ruin-your-resume/)
-- [what gifts should you never give](https://lifestyle.allwomenstalk.com/presents-you-should-never-give/)
-- [Dont Let Your Holiday Season Turn into a Class Reu...](https://inspiration.allwomenstalk.com/dont-let-your-holiday-season-turn-into-a-class-reunion/)
-- [10 Things He Really Doesnt Want to Hear from You ....](https://love.allwomenstalk.com/things-he-really-doesnt-want-to-hear-from-you/)
-- [things that take no talent](https://inspiration.allwomenstalk.com/things-in-that-require-no-talent/)
-- [Body Language to Avoid to Create a Good Impression...](https://love.allwomenstalk.com/body-language-to-avoid-to-create-a-good-impression-on-a-first-date/)
-- [10 Things to Give up for Lent ...](https://inspiration.allwomenstalk.com/things-to-give-up-for-lent/)
-- [Top Ten Bad Dating Habits to Avoid ...](https://love.allwomenstalk.com/top-ten-bad-dating-habits-to-avoid/)
 - [Different Types of Content That Does Not Appeal to...](https://lifestyle.allwomenstalk.com/types-of-content-that-does-not-appeal-to-the-majority-of-site-visitors/)
+- [10 Things to Give up for Lent ...](https://inspiration.allwomenstalk.com/things-to-give-up-for-lent/)
+- [what gifts should you never give](https://lifestyle.allwomenstalk.com/presents-you-should-never-give/)
+- [50 Words That Can Ruin Your Resume ...](https://money.allwomenstalk.com/words-that-can-ruin-your-resume/)
+- [Body Language to Avoid to Create a Good Impression...](https://love.allwomenstalk.com/body-language-to-avoid-to-create-a-good-impression-on-a-first-date/)
+- [10 Things He Really Doesnt Want to Hear from You ....](https://love.allwomenstalk.com/things-he-really-doesnt-want-to-hear-from-you/)
+- [Dont Let Your Holiday Season Turn into a Class Reu...](https://inspiration.allwomenstalk.com/dont-let-your-holiday-season-turn-into-a-class-reunion/)
+- [Top Ten Bad Dating Habits to Avoid ...](https://love.allwomenstalk.com/top-ten-bad-dating-habits-to-avoid/)
 - [never leave in your car](https://lifestyle.allwomenstalk.com/things-to-always-never-leave-in-your-car/)
+- [things that take no talent](https://inspiration.allwomenstalk.com/things-in-that-require-no-talent/)
 - [10 Things You Should Never Admit to Anyone ...](https://allwomenstalk.com/10-things-you-should-never-admit-to-anyone/)
 - [7 Things You Should Not Share ...](https://allwomenstalk.com/7-things-you-should-not-share/)
 

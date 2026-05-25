@@ -3,7 +3,7 @@ title: "7 Myths of Credit Scores ..."
 description: "You Will Damage Your Credit Score by Checking It; Shopping around Will Harm Your Credit Score; Paying Debt is the Magic Cure; Marriage Equals a Joint Score; Credit Repair Companies Work; More ..."
 url: "https://money.allwomenstalk.com/myths-of-credit-scores/"
 category: "money"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Myths of Credit Scores ...
@@ -43,15 +43,15 @@ Your credit score is something that will follow you through life, for better and
 ## Related Posts
 
 - [7 Common Money Fears and How to Tackle Them ...](https://money.allwomenstalk.com/common-money-fears-and-how-to-tackle-them/)
-- [7 Smart Things to do with Your Tax Refund ...](https://money.allwomenstalk.com/smart-things-to-do-with-your-tax-refund/)
-- [7 Bad Money Habits to Break in 2013 ...](https://money.allwomenstalk.com/bad-money-habits-to-break-in/)
-- [alternative ways to earn money](https://money.allwomenstalk.com/alternative-ways-to-make-money/)
-- [7 Steps to Financial Fitness in 2013 ...](https://money.allwomenstalk.com/steps-to-financial-fitness-in/)
-- [8 Tips to Help You Pay off Your Debt ...](https://money.allwomenstalk.com/tips-to-help-you-pay-off-your-debt/)
 - [simple saving savvy](https://money.allwomenstalk.com/simple-and-savvy-financial-habits/)
-- [8 Financial Resolutions You Should Make in 2013 .....](https://money.allwomenstalk.com/financial-resolutions-you-should-make-in/)
-- [how to lend money to others smart](https://money.allwomenstalk.com/tips-for-smart-borrowing/)
+- [8 Tips to Help You Pay off Your Debt ...](https://money.allwomenstalk.com/tips-to-help-you-pay-off-your-debt/)
+- [alternative ways to earn money](https://money.allwomenstalk.com/alternative-ways-to-make-money/)
+- [7 Smart Things to do with Your Tax Refund ...](https://money.allwomenstalk.com/smart-things-to-do-with-your-tax-refund/)
+- [7 Steps to Financial Fitness in 2013 ...](https://money.allwomenstalk.com/steps-to-financial-fitness-in/)
 - [7 Tips to Help Beloved Seniors with Finances ...](https://money.allwomenstalk.com/tips-to-help-beloved-seniors-with-finances/)
+- [how to lend money to others smart](https://money.allwomenstalk.com/tips-for-smart-borrowing/)
+- [8 Financial Resolutions You Should Make in 2013 .....](https://money.allwomenstalk.com/financial-resolutions-you-should-make-in/)
+- [7 Bad Money Habits to Break in 2013 ...](https://money.allwomenstalk.com/bad-money-habits-to-break-in/)
 - [7 Common Myths about People with Money ...](https://money.allwomenstalk.com/common-myths-about-people-with-money/)
 - [7 of the Most Basic Financial Mistakes ...](https://money.allwomenstalk.com/of-the-most-basic-financial-mistakes/)
 

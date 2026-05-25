@@ -3,7 +3,7 @@ title: "The Essential List of Things You Should do when Youre Unemployed ..."
 description: "Volunteer; Freelance; Network; Keep Your Skills Current; Build an Online Presence; More ..."
 url: "https://money.allwomenstalk.com/things-you-should-be-doing-when-you-are-unemployed/"
 category: "money"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # The Essential List of Things You Should do when Youre Unemployed ...
@@ -47,16 +47,16 @@ Sources:
 
 ## Related Posts
 
-- [7 Workplace Personalities That Grind Your Gears .....](https://money.allwomenstalk.com/workplace-personalities-that-grind-your-gears/)
-- [7 Life Skills That Will Impress Employers ...](https://money.allwomenstalk.com/life-skills-that-will-impress-employers/)
-- [7 Tips to Help You Make a Friend at Work ...](https://money.allwomenstalk.com/tips-to-help-you-make-a-friend-at-work/)
-- [Wait Til You See These 7 Ways Traveling Helps Your...](https://travel.allwomenstalk.com/wait-til-you-see-these-ways-traveling-helps-your-career/)
-- [This is What to do when You Are between Jobs ...](https://money.allwomenstalk.com/this-is-what-to-do-when-you-are-between-jobs/)
 - [7 Career Mistakes to Avoid in 2015 ...](https://money.allwomenstalk.com/career-mistakes-to-avoid-in/)
+- [This is What to do when You Are between Jobs ...](https://money.allwomenstalk.com/this-is-what-to-do-when-you-are-between-jobs/)
+- [7 Workplace Personalities That Grind Your Gears .....](https://money.allwomenstalk.com/workplace-personalities-that-grind-your-gears/)
 - [7 Ways to Be Successful Working from Home ...](https://money.allwomenstalk.com/ways-to-be-successful-working-from-home/)
 - [7 Myths about Choosing a Career That Arent True .....](https://money.allwomenstalk.com/myths-about-choosing-a-career-that-arent-true/)
 - [job trends 2015](https://money.allwomenstalk.com/workplace-and-career-trends-expected-in/)
+- [7 Life Skills That Will Impress Employers ...](https://money.allwomenstalk.com/life-skills-that-will-impress-employers/)
 - [7 Tips on How to Be Prepared and Calm during an In...](https://money.allwomenstalk.com/tips-on-how-to-be-prepared-and-calm-during-an-interview/)
+- [Wait Til You See These 7 Ways Traveling Helps Your...](https://travel.allwomenstalk.com/wait-til-you-see-these-ways-traveling-helps-your-career/)
+- [7 Tips to Help You Make a Friend at Work ...](https://money.allwomenstalk.com/tips-to-help-you-make-a-friend-at-work/)
 - [10 Reassuringly Effective Ways to Cope when You Lo...](https://health.allwomenstalk.com/reassuringly-effective-ways-to-cope-when-you-lose-your-job/)
 - [10 Ways to Make Money While out of Work ...](https://allwomenstalk.com/10-ways-to-make-money-while-out-of-work/)
 

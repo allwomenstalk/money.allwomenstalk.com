@@ -3,7 +3,7 @@ title: "7 Bad Money Habits That Can Tear Couples Apart ..."
 description: "Gambling; Hiding Money; You'd Rather Shop than save; You Lie about Paying Bills; Clueless about Money; More ..."
 url: "https://money.allwomenstalk.com/bad-money-habits-that-can-tear-couples-apart/"
 category: "money"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Bad Money Habits That Can Tear Couples Apart ...
@@ -42,16 +42,16 @@ Marriage is hard enough, and the last thing you need is money issues driving a w
 
 ## Related Posts
 
-- [what to know before taking out student loans](https://money.allwomenstalk.com/things-to-consider-before-taking-out-a-student-loan/)
-- [7 Reasons Not to Borrow Too Much when Buying a Hou...](https://money.allwomenstalk.com/reasons-not-to-borrow-too-much-when-buying-a-house/)
-- [7 Worst Possible Things to do with Your Savings .....](https://money.allwomenstalk.com/worst-possible-things-to-do-with-your-savings/)
-- [7 Reasons Why You Shouldnt Use Your Credit Card in...](https://money.allwomenstalk.com/reasons-why-you-shouldnt-use-your-credit-card-in-an-emergency/)
-- [7 Ways to Avoid Being the Victim of Credit Card Fr...](https://money.allwomenstalk.com/ways-to-avoid-being-the-victim-of-credit-card-fraud/)
-- [7 Steps for Getting the Mortgage You Want ...](https://money.allwomenstalk.com/steps-for-getting-the-mortgage-you-want/)
 - [7 Ways Others Influence Your Thoughts about Money ...](https://money.allwomenstalk.com/ways-others-influence-your-thoughts-about-money/)
-- [7 Possible Reasons Why Your Credit Card Was Reject...](https://money.allwomenstalk.com/possible-reasons-why-your-credit-card-was-rejected/)
+- [7 Reasons Not to Borrow Too Much when Buying a Hou...](https://money.allwomenstalk.com/reasons-not-to-borrow-too-much-when-buying-a-house/)
 - [Do You Need a Financial Buddy to Keep You on Track...](https://money.allwomenstalk.com/signs-that-you-need-a-financial-buddy/)
+- [7 Ways to Avoid Being the Victim of Credit Card Fr...](https://money.allwomenstalk.com/ways-to-avoid-being-the-victim-of-credit-card-fraud/)
+- [7 Reasons Why You Shouldnt Use Your Credit Card in...](https://money.allwomenstalk.com/reasons-why-you-shouldnt-use-your-credit-card-in-an-emergency/)
+- [7 Possible Reasons Why Your Credit Card Was Reject...](https://money.allwomenstalk.com/possible-reasons-why-your-credit-card-was-rejected/)
+- [what to know before taking out student loans](https://money.allwomenstalk.com/things-to-consider-before-taking-out-a-student-loan/)
 - [common mistakes youre making with your checking ac...](https://money.allwomenstalk.com/tips-to-help-you-avoid-checking-account-mistakes/)
+- [7 Steps for Getting the Mortgage You Want ...](https://money.allwomenstalk.com/steps-for-getting-the-mortgage-you-want/)
+- [7 Worst Possible Things to do with Your Savings .....](https://money.allwomenstalk.com/worst-possible-things-to-do-with-your-savings/)
 - [7 Bad Habits That Can Ruin Your Love Life ...](https://allwomenstalk.com/bad-habits-that-can-ruin-your-love-life/)
 - [7 Distractions That Can Destroy a Relationship ...](https://love.allwomenstalk.com/distractions-that-can-destroy-a-relationship/)
 

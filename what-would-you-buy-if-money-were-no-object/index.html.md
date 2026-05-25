@@ -3,7 +3,7 @@ title: "What Would You Buy if Money Were No Object?"
 description: "A Cool $1 Billion Will Buy You the World’s Most Expensive Home; Or Maybe You’d Be Happy to Downscale a Wee Bit; Or Sleep in a Room with a View; And Have Plenty of Space for Entertaining; Drive the Most Expensive Car in the World; More ..."
 url: "https://money.allwomenstalk.com/what-would-you-buy-if-money-were-no-object/"
 category: "money"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # What Would You Buy if Money Were No Object?
@@ -213,16 +213,16 @@ So what would you buy if money were no object?
 
 ## Related Posts
 
-- [following footsteps](https://lifestyle.allwomenstalk.com/do-your-parents-want-you-to-follow-in-their-footsteps/)
-- [what to do when the girl you like is taken](https://love.allwomenstalk.com/what-do-you-do-when-your-crush-is-taken/)
-- [cutting hair shorter](https://hair.allwomenstalk.com/is-it-time-to-cut-your-hair-short/)
-- [bored of my job but it pays well](https://money.allwomenstalk.com/do-you-really-hate-your-job-or-are-you-just-bored/)
-- [someone with good values](https://inspiration.allwomenstalk.com/what-values-make-you-a-good-person/)
-- [worlds best jobs](https://money.allwomenstalk.com/are-these-the-best-jobs-in-the-world/)
-- [destined with you break up](https://love.allwomenstalk.com/are-you-destined-to-break-up/)
-- [amulets of egypt](https://jewelry.allwomenstalk.com/how-much-do-you-know-about-ancient-egyptian-amulets/)
-- [hitguys](https://love.allwomenstalk.com/hot-guys-which-one-is-your-type/)
 - [capsule wardrobe books](https://fashion.allwomenstalk.com/what-on-earth-is-a-capsule-wardrobe-and-why-do-you-need-to-try-it-asap/)
+- [destined with you break up](https://love.allwomenstalk.com/are-you-destined-to-break-up/)
+- [what to do when the girl you like is taken](https://love.allwomenstalk.com/what-do-you-do-when-your-crush-is-taken/)
+- [hitguys](https://love.allwomenstalk.com/hot-guys-which-one-is-your-type/)
+- [someone with good values](https://inspiration.allwomenstalk.com/what-values-make-you-a-good-person/)
+- [bored of my job but it pays well](https://money.allwomenstalk.com/do-you-really-hate-your-job-or-are-you-just-bored/)
+- [worlds best jobs](https://money.allwomenstalk.com/are-these-the-best-jobs-in-the-world/)
+- [cutting hair shorter](https://hair.allwomenstalk.com/is-it-time-to-cut-your-hair-short/)
+- [following footsteps](https://lifestyle.allwomenstalk.com/do-your-parents-want-you-to-follow-in-their-footsteps/)
+- [amulets of egypt](https://jewelry.allwomenstalk.com/how-much-do-you-know-about-ancient-egyptian-amulets/)
 - [What do You Want for Thirty Bucks](https://allwomenstalk.com/what-do-you-want-for-thirty-bucks/)
 - [9 Things Worth Spending on ...](https://allwomenstalk.com/10-things-worth-spending-on/)
 

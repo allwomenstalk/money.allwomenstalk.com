@@ -3,7 +3,7 @@ title: "7 Lies in Your Resume That Will Get You Fired ..."
 description: "Incorrect Information regarding Your Education; Lies about Your Ex-Employer; False Positions in Your Work History; False Knowledge of Some Foreign Language; False Computer Skills; More ..."
 url: "https://money.allwomenstalk.com/lies-in-your-resume-that-will-get-you-fired/"
 category: "money"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Lies in Your Resume That Will Get You Fired ...
@@ -44,16 +44,16 @@ Even though you might be tempted to think sometimes that a prestigious former em
 
 ## Related Posts
 
-- [7 Helpful Tips for Getting Your Dream Job ...](https://lifestyle.allwomenstalk.com/helpful-tips-for-getting-your-dream-job/)
-- [i dont know what to be when i grow up](https://inspiration.allwomenstalk.com/steps-for-if-you-dont-know-what-you-want-to-be-when-you-grow-up/)
-- [7 Money Tips to Remember when You Get a Brand New ...](https://money.allwomenstalk.com/money-tips-to-remember-when-you-get-a-brand-new-job/)
-- [qualities employers want](https://lifestyle.allwomenstalk.com/valuable-qualities-and-skills-every-employer-wants/)
 - [7 Interesting Ways Volunteering Can Boost Your Car...](https://lifestyle.allwomenstalk.com/interesting-ways-volunteering-can-boost-your-career/)
-- [7 Ways to Prepare for a Job Interview ...](https://lifestyle.allwomenstalk.com/ways-to-prepare-for-a-job-interview/)
-- [7 Fool-proof Ways to Get a Promotion ...](https://lifestyle.allwomenstalk.com/fool-proof-ways-to-get-a-promotion/)
-- [7 Skills You Can Learn to Make You Look Better on ...](https://lifestyle.allwomenstalk.com/skills-you-can-learn-to-make-you-look-better-on-your-resume/)
-- [7 Very Useful Tips on How to Negotiate a Higher Sa...](https://lifestyle.allwomenstalk.com/very-useful-tips-on-how-to-negotiate-a-higher-salary/)
 - [7 Important Questions to Ask Yourself before Start...](https://lifestyle.allwomenstalk.com/important-questions-to-ask-yourself-before-starting-your-own-business/)
+- [qualities employers want](https://lifestyle.allwomenstalk.com/valuable-qualities-and-skills-every-employer-wants/)
+- [7 Ways to Prepare for a Job Interview ...](https://lifestyle.allwomenstalk.com/ways-to-prepare-for-a-job-interview/)
+- [i dont know what to be when i grow up](https://inspiration.allwomenstalk.com/steps-for-if-you-dont-know-what-you-want-to-be-when-you-grow-up/)
+- [7 Skills You Can Learn to Make You Look Better on ...](https://lifestyle.allwomenstalk.com/skills-you-can-learn-to-make-you-look-better-on-your-resume/)
+- [7 Fool-proof Ways to Get a Promotion ...](https://lifestyle.allwomenstalk.com/fool-proof-ways-to-get-a-promotion/)
+- [7 Money Tips to Remember when You Get a Brand New ...](https://money.allwomenstalk.com/money-tips-to-remember-when-you-get-a-brand-new-job/)
+- [7 Helpful Tips for Getting Your Dream Job ...](https://lifestyle.allwomenstalk.com/helpful-tips-for-getting-your-dream-job/)
+- [7 Very Useful Tips on How to Negotiate a Higher Sa...](https://lifestyle.allwomenstalk.com/very-useful-tips-on-how-to-negotiate-a-higher-salary/)
 - [7 Things to Not Include in a Resume ...](https://money.allwomenstalk.com/things-to-not-include-in-a-resume/)
 - [7 Ways to Ruin Your Resume ...](https://allwomenstalk.com/7-ways-to-ruin-your-resume/)
 
