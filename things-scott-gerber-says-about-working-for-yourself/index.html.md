@@ -3,7 +3,7 @@ title: "7 Things Scott Gerber Says about Working for Yourself ..."
 description: "You’re Not Invincible; Simplicity Equals Profits; The Worst Case Scenario; Unoriginality; Startup Costs; More ..."
 url: "https://money.allwomenstalk.com/things-scott-gerber-says-about-working-for-yourself/"
 category: "money"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Things Scott Gerber Says about Working for Yourself ...
@@ -42,16 +42,16 @@ Working for yourself isn’t a breeze and having an inspirational guide to being
 
 ## Related Posts
 
-- [how to make your business look more professional](https://lifestyle.allwomenstalk.com/tips-to-make-your-business-look-more-professional/)
 - [great first job](https://teen.allwomenstalk.com/best-first-jobs/)
-- [bad first week at new job](https://money.allwomenstalk.com/helpful-tips-for-surviving-the-first-week-at-a-new-job/)
-- [signs you are being headhunted](https://lifestyle.allwomenstalk.com/ways-you-know-youve-made-it-in-your-career/)
-- [things you need in your office](https://lifestyle.allwomenstalk.com/important-things-you-need-to-have-at-your-office-desk/)
-- [chat with boss](https://money.allwomenstalk.com/ways-to-talk-with-your-boss-about-your-future/)
-- [best saleswoman](https://money.allwomenstalk.com/ways-to-become-a-successful-saleswoman/)
 - [types of work people do](https://lifestyle.allwomenstalk.com/types-of-people-you-find-in-the-work-office/)
-- [how to get exposure](https://money.allwomenstalk.com/useful-tips-for-increasing-your-professional-visibility-and-exposure/)
+- [signs you are being headhunted](https://lifestyle.allwomenstalk.com/ways-you-know-youve-made-it-in-your-career/)
+- [chat with boss](https://money.allwomenstalk.com/ways-to-talk-with-your-boss-about-your-future/)
 - [workersonboard weekly jobs](https://money.allwomenstalk.com/great-websites-to-find-work-at-home-jobs/)
+- [how to get exposure](https://money.allwomenstalk.com/useful-tips-for-increasing-your-professional-visibility-and-exposure/)
+- [things you need in your office](https://lifestyle.allwomenstalk.com/important-things-you-need-to-have-at-your-office-desk/)
+- [best saleswoman](https://money.allwomenstalk.com/ways-to-become-a-successful-saleswoman/)
+- [how to make your business look more professional](https://lifestyle.allwomenstalk.com/tips-to-make-your-business-look-more-professional/)
+- [bad first week at new job](https://money.allwomenstalk.com/helpful-tips-for-surviving-the-first-week-at-a-new-job/)
 - [7 Pros and Cons of Starting Your Own Business ...](https://allwomenstalk.com/7-pros-and-cons-of-starting-your-own-business/)
 - [7 Reasons to Work for Yourself ...](https://allwomenstalk.com/7-reasons-to-work-for-yourself/)
 

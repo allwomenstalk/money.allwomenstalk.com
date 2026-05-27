@@ -3,7 +3,7 @@ title: "Got a Promotion? How to Go from Colleague to Boss ..."
 description: "Address It; Confidence and Authority; Listen; Boundaries; Equality; More ..."
 url: "https://money.allwomenstalk.com/got-a-promotion-how-to-go-from-colleague-to-boss/"
 category: "money"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Got a Promotion? How to Go from Colleague to Boss ...
@@ -42,16 +42,16 @@ If your friends are genuine, they will be pleased at your promotion. It's up to 
 
 ## Related Posts
 
-- [kickstart your business](https://money.allwomenstalk.com/how-to-kickstart-your-business-without-the-kickstarter-site/)
-- [how to be respected at work as a woman](https://money.allwomenstalk.com/expert-tips-for-women-who-want-more-respect-at-work/)
 - [do you need to be good at math for coding](https://apps.allwomenstalk.com/coding-is-the-skill-to-learn-in-why-and-how/)
-- [can i bring a tote bag to an interview](https://money.allwomenstalk.com/girls-going-to-an-interview-need-to-bring-these-things/)
 - [how to appear more professional](https://lifestyle.allwomenstalk.com/this-is-how-to-always-sound-polished-and-professional/)
-- [single mom who works two jobs](https://teen.allwomenstalk.com/real-world-101-how-to-handle-your-very-first-job/)
-- [7 signs youre about to be fired](https://money.allwomenstalk.com/these-frustrating-habits-just-might-get-you-fired/)
-- [coffee before interview](https://books.allwomenstalk.com/the-best-books-to-read-before-a-big-job-interview/)
-- [your unbelievable](https://lifestyle.allwomenstalk.com/unbelievable-things-you-can-do-with-your-english-degree/)
 - [talk2rep work from home](https://money.allwomenstalk.com/work-from-home-companies-that-are-hiring-right-now/)
+- [single mom who works two jobs](https://teen.allwomenstalk.com/real-world-101-how-to-handle-your-very-first-job/)
+- [coffee before interview](https://books.allwomenstalk.com/the-best-books-to-read-before-a-big-job-interview/)
+- [how to be respected at work as a woman](https://money.allwomenstalk.com/expert-tips-for-women-who-want-more-respect-at-work/)
+- [your unbelievable](https://lifestyle.allwomenstalk.com/unbelievable-things-you-can-do-with-your-english-degree/)
+- [7 signs youre about to be fired](https://money.allwomenstalk.com/these-frustrating-habits-just-might-get-you-fired/)
+- [kickstart your business](https://money.allwomenstalk.com/how-to-kickstart-your-business-without-the-kickstarter-site/)
+- [can i bring a tote bag to an interview](https://money.allwomenstalk.com/girls-going-to-an-interview-need-to-bring-these-things/)
 - [7 Tips on How to Deal with Your Boss like a Pro .....](https://lifestyle.allwomenstalk.com/tips-on-how-to-deal-with-your-boss-like-a-pro/)
 - [8 Tips for a Successful Employee-Boss Relationship...](https://allwomenstalk.com/8-tips-for-a-successful-employee-boss-relationship/)
 

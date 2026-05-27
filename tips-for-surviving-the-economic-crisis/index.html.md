@@ -3,7 +3,7 @@ title: "9 Tips for Surviving the Economic Crisis ..."
 description: "Maximise Sources of Income; Reduce Spending; Avoid Credit; Rainy Day Fund; Shop Smart; More ..."
 url: "https://money.allwomenstalk.com/tips-for-surviving-the-economic-crisis/"
 category: "money"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 9 Tips for Surviving the Economic Crisis ...
@@ -52,16 +52,16 @@ Top Photo Credit: _jasonryanberg_
 
 ## Related Posts
 
-- [7 Ways to Create a Budget ...](https://money.allwomenstalk.com/ways-to-create-a-budget/)
 - [8 Financial Products That Are a Waste of Money ...](https://money.allwomenstalk.com/financial-products-that-are-a-waste-of-money/)
-- [9 Ways to Repair Your Credit Score ...](https://money.allwomenstalk.com/ways-to-repair-your-credit-score/)
-- [how to avoid financial scams](https://money.allwomenstalk.com/ways-to-avoid-financial-scams-and-fraud/)
-- [7 Ways to Prep for Tax Time ...](https://money.allwomenstalk.com/ways-to-prep-for-tax-time/)
-- [7 Tips to Pay off Student Loans ...](https://money.allwomenstalk.com/tips-to-pay-off-student-loans/)
-- [essential credit card](https://money.allwomenstalk.com/essential-credit-management-rules-for-young-credit-card-holders/)
-- [how to lend money to others smart](https://money.allwomenstalk.com/ways-to-be-smart-when-borrowing-money-for-college/)
 - [10 Legally Permissible Ways to Prevent Foreclosure...](https://money.allwomenstalk.com/legally-permissible-ways-to-prevent-foreclosure/)
+- [7 Ways to Prep for Tax Time ...](https://money.allwomenstalk.com/ways-to-prep-for-tax-time/)
+- [essential credit card](https://money.allwomenstalk.com/essential-credit-management-rules-for-young-credit-card-holders/)
+- [7 Ways to Create a Budget ...](https://money.allwomenstalk.com/ways-to-create-a-budget/)
 - [7 Essential Factors to Consider before Making Thos...](https://money.allwomenstalk.com/essential-factors-to-consider-before-making-those-hefty-balance-transfers/)
+- [9 Ways to Repair Your Credit Score ...](https://money.allwomenstalk.com/ways-to-repair-your-credit-score/)
+- [how to lend money to others smart](https://money.allwomenstalk.com/ways-to-be-smart-when-borrowing-money-for-college/)
+- [how to avoid financial scams](https://money.allwomenstalk.com/ways-to-avoid-financial-scams-and-fraud/)
+- [7 Tips to Pay off Student Loans ...](https://money.allwomenstalk.com/tips-to-pay-off-student-loans/)
 - [10 Ways to save Money by Being Frugal ...](https://money.allwomenstalk.com/ways-to-save-money-by-being-frugal/)
 - [8 Smart Tips on How to save Money ...](https://money.allwomenstalk.com/smart-tips-on-how-to-save-money/)
 
