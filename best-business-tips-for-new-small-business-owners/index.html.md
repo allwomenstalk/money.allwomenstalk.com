@@ -12,9 +12,11 @@ Location? Check. Goods or services to sell? Check. Website? Check. The list of t
 
 ## 1. Do Your Homework
 
-_ It’s critical to research your audience demographics before you begin to develop your marketing strategy. This information will guide all of your business decisions. You have limited time and resources, so you want to make sure you are using them wisely. For example, there are several different social media platforms out there, but few people spend time on all of them and you don’t have time to tailor a message for each platform. Instead, use your audience research to focus your efforts on a few platforms to reach the largest group of people who will benefit the most from your goods or services.
+![font,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/e4/fz/bwv9r6xe5bc8e39003844046153081_600x600.jpg)
 
-You can do the research yourself or you can hire a professional to perform a more in-depth analysis. The Small Business Association offers this worksheet_ to help business owners get started on their research. Don’t forget to check out your competition while you’re in research mode, too. The goal is to be the best you can at providing your specific goods or services. You can’t do that if you don’t know what the competition is doing.
+It’s critical to research your audience demographics before you begin to develop your marketing strategy. This information will guide all of your business decisions. You have limited time and resources, so you want to make sure you are using them wisely. For example, there are several different social media platforms out there, but few people spend time on all of them and you don’t have time to tailor a message for each platform. Instead, use your audience research to focus your efforts on a few platforms to reach the largest group of people who will benefit the most from your goods or services.
+
+You can do the research yourself or you can hire a professional to perform a more in-depth analysis. The Small Business Association offers _this worksheet_ to help business owners get started on their research. Don’t forget to check out your competition while you’re in research mode, too. The goal is to be the best you can at providing your specific goods or services. You can’t do that if you don’t know what the competition is doing.
 
 ## 2. Don’t do Everything at Once
 
