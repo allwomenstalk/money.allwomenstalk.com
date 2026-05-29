@@ -3,7 +3,7 @@ title: "The Worst Excuses You Can Make about Your Finances ..."
 description: "Everyone Spends Money; I’ll Never Get Ahead, Why Bother?; Debt is a Way of Life; I Have Plenty of Time to Worry about Finances; I Deserve a Treat; More ..."
 url: "https://money.allwomenstalk.com/bad-excuses-that-can-wreck-your-finances/"
 category: "money"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # The Worst Excuses You Can Make about Your Finances ...
@@ -44,16 +44,16 @@ What are some common money excuses?
 
 ## Related Posts
 
-- [house money pit](https://money.allwomenstalk.com/ways-to-cope-with-a-money-pit/)
-- [used car buying mistakes](https://lifestyle.allwomenstalk.com/car-buying-mistakes-and-how-to-avoid-them/)
-- [what they dont teach you about money](https://money.allwomenstalk.com/things-your-parents-didnt-teach-you-about-money/)
-- [best credit card for lifestyle](https://money.allwomenstalk.com/best-credit-cards-for-different-lifestyles/)
 - [homebudget with sync](https://apps.allwomenstalk.com/fantastic-apps-for-personal-finance-and-budgeting/)
-- [cope or drop](https://money.allwomenstalk.com/ways-to-cope-with-a-drop-in-income/)
+- [what they dont teach you about money](https://money.allwomenstalk.com/things-your-parents-didnt-teach-you-about-money/)
 - [how to separate business and personal finances](https://money.allwomenstalk.com/ways-to-run-your-personal-finances-like-a-business/)
-- [financial buddy reviews](https://money.allwomenstalk.com/things-to-look-for-in-a-financial-buddy/)
+- [best credit card for lifestyle](https://money.allwomenstalk.com/best-credit-cards-for-different-lifestyles/)
 - [good excuses to borrow money](https://money.allwomenstalk.com/lame-excuses-for-not-saving-money/)
+- [cope or drop](https://money.allwomenstalk.com/ways-to-cope-with-a-drop-in-income/)
+- [financial buddy reviews](https://money.allwomenstalk.com/things-to-look-for-in-a-financial-buddy/)
+- [used car buying mistakes](https://lifestyle.allwomenstalk.com/car-buying-mistakes-and-how-to-avoid-them/)
 - [songs about being broke](https://money.allwomenstalk.com/reasons-why-being-broke-is-a-blessing-in-disguise/)
+- [house money pit](https://money.allwomenstalk.com/ways-to-cope-with-a-money-pit/)
 - [6 Reasons Why Your Money Just Disappears ...](https://allwomenstalk.com/6-reasons-why-your-money-just-disappears/)
 - [10 Reasons Why I Dont Have Money ...](https://money.allwomenstalk.com/reasons-why-i-dont-have-money/)
 

@@ -3,7 +3,7 @@ title: "8 Things Used as Money in the past ..."
 description: "Buckskins; Mirrors; Shells; Tobacco; Salt; More ..."
 url: "https://money.allwomenstalk.com/things-used-as-money-in-the-past/"
 category: "money"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 8 Things Used as Money in the past ...
@@ -44,16 +44,16 @@ Top Image Source: [favim.com](https://goo.gl/gCh0JT)
 
 ## Related Posts
 
-- [smart with your money](https://money.allwomenstalk.com/ways-to-be-smart-with-your-money/)
-- [how to budget in your 20s](https://money.allwomenstalk.com/tips-for-making-a-budget-when-in-your-20s/)
-- [can debt collectors call on public holidays](https://money.allwomenstalk.com/things-debt-collectors-cant-do/)
-- [is upfinances legit](https://money.allwomenstalk.com/ways-to-bring-up-finances-with-your-partner/)
-- [how to open an account with first bank](https://money.allwomenstalk.com/tips-for-opening-your-first-bank-account/)
 - [stop using credit card](https://money.allwomenstalk.com/smart-reasons-to-stop-using-credit-cards/)
+- [can debt collectors call on public holidays](https://money.allwomenstalk.com/things-debt-collectors-cant-do/)
 - [opening a second bank account](https://money.allwomenstalk.com/reasons-to-have-a-second-bank-account/)
-- [how to get more out of your paycheck](https://money.allwomenstalk.com/tips-for-getting-the-most-out-of-your-paycheck/)
-- [avoid getting into debt](https://money.allwomenstalk.com/ways-to-avoid-getting-into-debt/)
+- [how to open an account with first bank](https://money.allwomenstalk.com/tips-for-opening-your-first-bank-account/)
+- [smart with your money](https://money.allwomenstalk.com/ways-to-be-smart-with-your-money/)
 - [weird ways to earn money](https://money.allwomenstalk.com/unusual-ways-to-make-money/)
+- [how to get more out of your paycheck](https://money.allwomenstalk.com/tips-for-getting-the-most-out-of-your-paycheck/)
+- [how to budget in your 20s](https://money.allwomenstalk.com/tips-for-making-a-budget-when-in-your-20s/)
+- [is upfinances legit](https://money.allwomenstalk.com/ways-to-bring-up-finances-with-your-partner/)
+- [avoid getting into debt](https://money.allwomenstalk.com/ways-to-avoid-getting-into-debt/)
 - [8 Tips on Getting Currency for a Trip Abroad ...](https://travel.allwomenstalk.com/tips-on-getting-currency-for-a-trip-abroad/)
 - [7 Ways to Earn Cash ...](https://allwomenstalk.com/7-ways-to-earn-cash/)
 
