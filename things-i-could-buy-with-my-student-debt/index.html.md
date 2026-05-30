@@ -3,7 +3,7 @@ title: "25 Shocking Things I Could Buy with My Student Debt ..."
 description: "A down Payment for a House; Rent; A New Car; Student Books for 20 Years; A Luxury Box to the NBA Finals - Almost; More ..."
 url: "https://money.allwomenstalk.com/things-i-could-buy-with-my-student-debt/"
 category: "money"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 25 Shocking Things I Could Buy with My Student Debt ...
@@ -116,16 +116,16 @@ The average undergrad might owe $25,000 a year, but graduate students owe around
 
 ## Related Posts
 
-- [future in his 20s](https://inspiration.allwomenstalk.com/perfect-ways-to-invest-in-your-future-in-your-20s/)
-- [5 Helpful Tips for Becoming Financially Literate ....](https://money.allwomenstalk.com/helpful-tips-for-becoming-financially-literate/)
-- [5 Habits You Need to Achieve Financial Freedom ...](https://money.allwomenstalk.com/habits-you-need-to-achieve-financial-freedom/)
-- [How to Start a Business without Money ...](https://money.allwomenstalk.com/how-to-start-a-business-without-money/)
-- [The Practical Application of the Four Buddhist Tru...](https://money.allwomenstalk.com/the-practical-application-of-the-four-buddhist-truths-to-your-finances/)
-- [Want to Become a Millionaire before You Turn 30 Re...](https://money.allwomenstalk.com/want-to-become-a-millionaire-before-you-turn-30-read-this-article-now/)
-- [Battlefield: How to Fight with Your Debts ...](https://money.allwomenstalk.com/battlefield-how-to-fight-with-your-debts/)
-- [8 Common Mistakes of Beginning Entrepreneurs ...](https://money.allwomenstalk.com/common-mistakes-of-beginning-entrepreneurs/)
 - [9 Smart Money Management Tips You Need for a Healt...](https://money.allwomenstalk.com/smart-money-management-tips-you-need-for-a-healthy-financial-future/)
+- [Want to Become a Millionaire before You Turn 30 Re...](https://money.allwomenstalk.com/want-to-become-a-millionaire-before-you-turn-30-read-this-article-now/)
+- [The Practical Application of the Four Buddhist Tru...](https://money.allwomenstalk.com/the-practical-application-of-the-four-buddhist-truths-to-your-finances/)
 - [we spend money for different reasons](https://money.allwomenstalk.com/reasons-why-you-spend-money-the-way-you-do/)
+- [future in his 20s](https://inspiration.allwomenstalk.com/perfect-ways-to-invest-in-your-future-in-your-20s/)
+- [Battlefield: How to Fight with Your Debts ...](https://money.allwomenstalk.com/battlefield-how-to-fight-with-your-debts/)
+- [5 Habits You Need to Achieve Financial Freedom ...](https://money.allwomenstalk.com/habits-you-need-to-achieve-financial-freedom/)
+- [8 Common Mistakes of Beginning Entrepreneurs ...](https://money.allwomenstalk.com/common-mistakes-of-beginning-entrepreneurs/)
+- [5 Helpful Tips for Becoming Financially Literate ....](https://money.allwomenstalk.com/helpful-tips-for-becoming-financially-literate/)
+- [How to Start a Business without Money ...](https://money.allwomenstalk.com/how-to-start-a-business-without-money/)
 - [8 Great Ways to save Money as a College Student .....](https://allwomenstalk.com/ways-to-save-money-as-a-student/)
 - [9 Things Worth Spending on ...](https://allwomenstalk.com/10-things-worth-spending-on/)
 

@@ -3,7 +3,7 @@ title: "What You Should do if Youre Stumped during an Interview ..."
 description: "Calm down; Don’t Say ‘I Don’t Know’; Ask Questions; Ask Again; Admit Nerves; More ..."
 url: "https://money.allwomenstalk.com/what-you-should-do-if-youre-stumped-during-an-interview/"
 category: "money"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # What You Should do if Youre Stumped during an Interview ...
@@ -36,16 +36,16 @@ Take a few minutes the next day to send a follow up email to your interviewer, t
 
 ## Related Posts
 
-- [How to Answer the What is Your Weakness Question i...](https://money.allwomenstalk.com/how-to-answer-the-what-is-your-weakness-question-in-an-interview/)
-- [living and working in australia](https://travel.allwomenstalk.com/living-and-working-in-australia-things-to-know/)
-- [How to Highlight Your Soft Skills in a Job Applica...](https://money.allwomenstalk.com/how-to-highlight-your-soft-skills-in-a-job-application/)
 - [business ventures](https://money.allwomenstalk.com/great-business-ventures-you-can-start-from-home-right-now/)
-- [What Millennials Can do to Pitch in during Coronav...](https://health.allwomenstalk.com/what-millennials-can-do-to-pitch-in-during-coronavirus-outbreak/)
+- [How to Highlight Your Soft Skills in a Job Applica...](https://money.allwomenstalk.com/how-to-highlight-your-soft-skills-in-a-job-application/)
 - [How to Write Your First Resume ...](https://money.allwomenstalk.com/how-to-write-your-first-resume/)
+- [How to Answer the What is Your Weakness Question i...](https://money.allwomenstalk.com/how-to-answer-the-what-is-your-weakness-question-in-an-interview/)
+- [What Millennials Can do to Pitch in during Coronav...](https://health.allwomenstalk.com/what-millennials-can-do-to-pitch-in-during-coronavirus-outbreak/)
 - [How to Get on the Career Ladder without Experience...](https://money.allwomenstalk.com/how-to-get-on-the-career-ladder-without-experience/)
+- [Guide to Getting the Best Cover Letter Ever ...](https://money.allwomenstalk.com/guide-to-get-the-best-cover-letter-ever/)
+- [living and working in australia](https://travel.allwomenstalk.com/living-and-working-in-australia-things-to-know/)
 - [How Travel Boosts Your Resume ...](https://travel.allwomenstalk.com/using-travel-to-boost-your-resume/)
 - [Things No One Tells You about Your First Job ...](https://money.allwomenstalk.com/things-no-one-tells-you-about-your-first-job/)
-- [Guide to Getting the Best Cover Letter Ever ...](https://money.allwomenstalk.com/guide-to-get-the-best-cover-letter-ever/)
 - [7 Things Not to Say at Our Next Job Interview ...](https://allwomenstalk.com/7-things-not-to-say-at-our-next-job-interview/)
 - [7 Reasons Why You Might Not Get Hired ...](https://money.allwomenstalk.com/reasons-why-you-might-not-get-hired/)
 

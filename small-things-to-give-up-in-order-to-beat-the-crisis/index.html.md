@@ -3,7 +3,7 @@ title: "8 Small Things to Give up in Order to Beat the Crisis ..."
 description: "Junk Food; Gasoline; Credit Cards; In-Season Vacations; Sleeping in Front of the TV; More ..."
 url: "https://money.allwomenstalk.com/small-things-to-give-up-in-order-to-beat-the-crisis/"
 category: "money"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 8 Small Things to Give up in Order to Beat the Crisis ...
@@ -49,15 +49,15 @@ Top Photo Credit: [Images_of_Money](https://www.flickr.com/photos/59937401@N07/5
 ## Related Posts
 
 - [loreal la maximalist eyeshadow primped previous](https://lifestyle.allwomenstalk.com/8-things-to-give-up-today/)
-- [how to describe eyes romantically](https://lifestyle.allwomenstalk.com/emotions-you-can-express-with-your-eyes/)
-- [10 Times You Dont Need to Apologize ...](https://lifestyle.allwomenstalk.com/times-you-dont-need-to-apologize/)
-- [apostrophe after z for possessive](https://lifestyle.allwomenstalk.com/dos-and-donts-of-life/)
-- [7 Things Ive Learned from the Jersey Shore ...](https://movies.allwomenstalk.com/things-ive-learned-from-the-jersey-shore/)
-- [makeup questions and answers](https://makeup.allwomenstalk.com/7-questions-about-foundations/)
 - [8 Things Ive Learned from Gossip Girl ...](https://movies.allwomenstalk.com/things-ive-learned-from-gossip-girl/)
-- [lessons that should be taught in school](https://lifestyle.allwomenstalk.com/life-lessons-they-should-teach-in-school/)
+- [10 Times You Dont Need to Apologize ...](https://lifestyle.allwomenstalk.com/times-you-dont-need-to-apologize/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
+- [lessons that should be taught in school](https://lifestyle.allwomenstalk.com/life-lessons-they-should-teach-in-school/)
 - [8 Things Ive Learned from Greys Anatomy ...](https://movies.allwomenstalk.com/things-ive-learned-from-greys-anatomy/)
+- [apostrophe after z for possessive](https://lifestyle.allwomenstalk.com/dos-and-donts-of-life/)
+- [how to describe eyes romantically](https://lifestyle.allwomenstalk.com/emotions-you-can-express-with-your-eyes/)
+- [makeup questions and answers](https://makeup.allwomenstalk.com/7-questions-about-foundations/)
+- [7 Things Ive Learned from the Jersey Shore ...](https://movies.allwomenstalk.com/things-ive-learned-from-the-jersey-shore/)
 - [9 Tips for Surviving the Economic Crisis ...](https://money.allwomenstalk.com/tips-for-surviving-the-economic-crisis/)
 - [8 Tips for Taking Control of Your Life ...](https://lifestyle.allwomenstalk.com/tips-for-taking-control-of-your-life/)
 

@@ -3,7 +3,7 @@ title: "7 Interesting Famous People on Banknotes around the World ..."
 description: "UK – Elizabeth Fry; Australia – Andrew Barton Paterson; Mexico – Benito Juárez; The Philippines – Corazon C. Aquino; Turkey – Fatma Aliye Topuz; More ..."
 url: "https://money.allwomenstalk.com/interesting-famous-people-on-banknotes-around-the-world/"
 category: "money"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Interesting Famous People on Banknotes around the World ...
@@ -55,15 +55,15 @@ I have found researching the famous people on banknotes fascinating. The sheer r
 ## Related Posts
 
 - [celebrity makeovers](https://celebs.allwomenstalk.com/amazing-celebrity-makeovers-that-make-great-inspiration/)
+- [hans epprecht](https://money.allwomenstalk.com/people-who-were-named-as-new-billionaires-in/)
+- [top celebrity endorsements](https://celebs.allwomenstalk.com/of-the-biggest-celebrity-endorsement-deals-of-all-time/)
 - [emily osment plastic surgery](https://celebs.allwomenstalk.com/celebrities-who-look-like-other-celebrities-see-it-to-believe-it/)
+- [hollywood actress with best figure](https://movies.allwomenstalk.com/top-actors-with-the-hottest-bodies/)
 - [14 year old actresses female](https://celebs.allwomenstalk.com/celebrities-who-starred-in-commercials-before-they-were-famous/)
 - [celebs who dont age](https://celebs.allwomenstalk.com/spookily-youthful-celebs-who-never-age/)
-- [jason lee child name](https://celebs.allwomenstalk.com/awesome-celebrity-baby-names/)
-- [hollywood actress with best figure](https://movies.allwomenstalk.com/top-actors-with-the-hottest-bodies/)
-- [alexsandra wright son](https://celebs.allwomenstalk.com/surprising-celebrity-men-whove-fathered-a-love-child/)
-- [hans epprecht](https://money.allwomenstalk.com/people-who-were-named-as-new-billionaires-in/)
 - [celebrities who lost it all to drugs](https://celebs.allwomenstalk.com/celebrities-that-turned-their-life-around-after-using-drugs/)
-- [top celebrity endorsements](https://celebs.allwomenstalk.com/of-the-biggest-celebrity-endorsement-deals-of-all-time/)
+- [jason lee child name](https://celebs.allwomenstalk.com/awesome-celebrity-baby-names/)
+- [alexsandra wright son](https://celebs.allwomenstalk.com/surprising-celebrity-men-whove-fathered-a-love-child/)
 - [7 Tiny Countries ...](https://travel.allwomenstalk.com/7-tiny-countries/)
 - [9 Foods Named after People ...](https://celebs.allwomenstalk.com/9-foods-named-after-people/)
 

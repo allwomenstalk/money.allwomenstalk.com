@@ -3,7 +3,7 @@ title: "7 Things You Should do if You Are Stumped during a Job Interview ..."
 description: "Stay Calm; Don’t Say “I Don’t Know”; Ask Questions; Tell the Interviewer How You Would Find an Answer; Buy Some Time; More ..."
 url: "https://money.allwomenstalk.com/things-you-should-do-if-you-are-stumped-during-a-job-interview/"
 category: "money"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Things You Should do if You Are Stumped during a Job Interview ...
@@ -47,16 +47,16 @@ Sources:
 
 ## Related Posts
 
+- [guarantee interview qas](https://money.allwomenstalk.com/interview-tips-thatll-guarantee-youll-get-a-position/)
+- [covering tattoos with other tattoos](https://beauty.allwomenstalk.com/methods-for-covering-up-your-tattoos-at-work/)
+- [novel and adaptive thinking meaning](https://money.allwomenstalk.com/work-skills-youll-need-to-be-successful-in-the-future/)
 - [business biographies](https://books.allwomenstalk.com/must-read-business-leader-biographies-thatll-give-you-tips-to-succeed/)
 - [truity enneagram test](https://teen.allwomenstalk.com/problems-picking-a-major-personality-tests-thatll-tell-you-which-career-is-your-calling/)
+- [laid back suit](https://fashion.allwomenstalk.com/how-to-do-laidback-style-at-the-office/)
+- [how to make cubicle more private](https://money.allwomenstalk.com/dread-going-to-work-heres-how-to-have-the-best-cubicle-in-the-world/)
 - [devenie young](https://fashion.allwomenstalk.com/do-you-dream-of-becoming-a-designer-heres-how-to-do-it-while-youre-young/)
 - [describe me in one word](https://money.allwomenstalk.com/words-to-describe-yourself-with-to-ace-an-interview/)
 - [dilbert salary](https://funny.allwomenstalk.com/wry-observations-of-life-at-work-by-dilbert/)
-- [guarantee interview qas](https://money.allwomenstalk.com/interview-tips-thatll-guarantee-youll-get-a-position/)
-- [covering tattoos with other tattoos](https://beauty.allwomenstalk.com/methods-for-covering-up-your-tattoos-at-work/)
-- [laid back suit](https://fashion.allwomenstalk.com/how-to-do-laidback-style-at-the-office/)
-- [how to make cubicle more private](https://money.allwomenstalk.com/dread-going-to-work-heres-how-to-have-the-best-cubicle-in-the-world/)
-- [novel and adaptive thinking meaning](https://money.allwomenstalk.com/work-skills-youll-need-to-be-successful-in-the-future/)
 - [10 Tips to Ace That Interview ...](https://allwomenstalk.com/10-tips-to-ace-that-interview/)
 - [10 Tips on Finding a Job ...](https://allwomenstalk.com/10-tips-on-finding-a-job/)
 

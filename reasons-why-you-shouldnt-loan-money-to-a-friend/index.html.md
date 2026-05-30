@@ -3,7 +3,7 @@ title: "7 Reasons Why You Shouldnt Loan Money to a Friend ..."
 description: "You Can't Afford It; Relaxed Attitude; Risks the Friendship; They Don't Learn; Informal; More ..."
 url: "https://money.allwomenstalk.com/reasons-why-you-shouldnt-loan-money-to-a-friend/"
 category: "money"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Reasons Why You Shouldnt Loan Money to a Friend ...
@@ -42,16 +42,16 @@ A true friend will understand if you don't want to agree to a loan - or wouldn't
 
 ## Related Posts
 
+- [friends to dating](https://love.allwomenstalk.com/reasons-to-be-friends-before-you-start-dating/)
+- [why you shouldnt go through your partners phone](https://love.allwomenstalk.com/reasons-why-you-shouldnt-snoop-on-your-partner/)
 - [marrying your best friend quote](https://love.allwomenstalk.com/reasons-why-the-person-you-marry-should-be-your-best-friend/)
+- [leap essay](https://inspiration.allwomenstalk.com/reasons-to-look-before-you-leap/)
 - [trying to keep up with the joneses](https://inspiration.allwomenstalk.com/reasons-you-should-not-try-to-keep-up-with-the-joneses/)
-- [offer your heart](https://love.allwomenstalk.com/reasons-why-you-should-not-give-your-heart-away/)
 - [did the kosa bill pass 2023](https://parenting.allwomenstalk.com/reasons-kid-shouldnt-date-until-theyre-16/)
 - [dreading turning 30](https://lifestyle.allwomenstalk.com/inarguable-reasons-to-stop-dreading-your-30s/)
-- [leap essay](https://inspiration.allwomenstalk.com/reasons-to-look-before-you-leap/)
 - [what to do after college](https://teen.allwomenstalk.com/reasons-its-ok-to-not-know-what-you-want-to-do-after-college/)
-- [friends to dating](https://love.allwomenstalk.com/reasons-to-be-friends-before-you-start-dating/)
 - [is 30 too old to be single](https://love.allwomenstalk.com/reasons-to-stay-single-and-free-until-30/)
-- [why you shouldnt go through your partners phone](https://love.allwomenstalk.com/reasons-why-you-shouldnt-snoop-on-your-partner/)
+- [offer your heart](https://love.allwomenstalk.com/reasons-why-you-should-not-give-your-heart-away/)
 - [8 Reasons Not to Have a Friend with Benefits ...](https://allwomenstalk.com/8-reasons-not-to-have-a-friend-with-benefits/)
 - [7 Reasons Not to Date Your Best Friend ...](https://allwomenstalk.com/7-reasons-not-to-date-your-best-friend/)
 
