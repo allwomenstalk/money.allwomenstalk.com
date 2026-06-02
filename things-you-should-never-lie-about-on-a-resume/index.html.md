@@ -3,7 +3,7 @@ title: "7 Things You Should Never Lie about on a Resume ..."
 description: "Your Skills; Your Education; Your Gaps in Employment; Your Criminal Record; Your past Salaries; More ..."
 url: "https://money.allwomenstalk.com/things-you-should-never-lie-about-on-a-resume/"
 category: "money"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Things You Should Never Lie about on a Resume ...
@@ -56,16 +56,16 @@ If you lie about any of these things, you're only hurting yourself. Have you eve
 
 ## Related Posts
 
-- [riche stylo amour](https://love.allwomenstalk.com/dont-mistake-these-things-for-love/)
-- [shouldbesociallyacceptable](https://lifestyle.allwomenstalk.com/things-that-should-be-socially-acceptable/)
-- [7 Things You Should Never Ever do before Sex ...](https://love.allwomenstalk.com/things-you-should-never-ever-do-before-sex/)
-- [worst first date spots](https://love.allwomenstalk.com/the-absolute-worst-places-for-a-first-date/)
-- [what makes someone nosey](https://apps.allwomenstalk.com/types-of-people-you-should-un-friend-on-facebook/)
 - [things to consider cheating](https://love.allwomenstalk.com/these-things-arent-actually-considered-cheating/)
-- [what not to talk about on a first date](https://love.allwomenstalk.com/never-talk-about-these-things-during-a-first-date/)
 - [dont let him in](https://love.allwomenstalk.com/dont-let-him-in-your-pants-if-he-does-these-things/)
-- [fremenies](https://inspiration.allwomenstalk.com/things-women-should-never-apologize-for/)
+- [what makes someone nosey](https://apps.allwomenstalk.com/types-of-people-you-should-un-friend-on-facebook/)
+- [riche stylo amour](https://love.allwomenstalk.com/dont-mistake-these-things-for-love/)
+- [7 Things You Should Never Ever do before Sex ...](https://love.allwomenstalk.com/things-you-should-never-ever-do-before-sex/)
 - [awkward first date](https://love.allwomenstalk.com/awkward-first-date-moments-you-hope-to-avoid/)
+- [fremenies](https://inspiration.allwomenstalk.com/things-women-should-never-apologize-for/)
+- [shouldbesociallyacceptable](https://lifestyle.allwomenstalk.com/things-that-should-be-socially-acceptable/)
+- [worst first date spots](https://love.allwomenstalk.com/the-absolute-worst-places-for-a-first-date/)
+- [what not to talk about on a first date](https://love.allwomenstalk.com/never-talk-about-these-things-during-a-first-date/)
 - [7 Things to Not Include in a Resume ...](https://money.allwomenstalk.com/things-to-not-include-in-a-resume/)
 - [10 Things You Should Never Lie to Your Doctor abou...](https://allwomenstalk.com/10-things-you-should-never-lie-to-your-doctor-about/)
 

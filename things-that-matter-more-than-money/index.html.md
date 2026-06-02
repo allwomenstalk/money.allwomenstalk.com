@@ -3,7 +3,7 @@ title: "9 Things That Matter More than Money ..."
 description: "Family; Friends; Health; Children; Freedom; More ..."
 url: "https://money.allwomenstalk.com/things-that-matter-more-than-money/"
 category: "money"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 9 Things That Matter More than Money ...
@@ -50,16 +50,16 @@ Having an extra dollar or two in your pocket never hurt anyone’s feelings, but
 
 ## Related Posts
 
-- [what to do when embarrassed at school](https://teen.allwomenstalk.com/things-we-all-do-in-class-that-you-shouldnt-feel-embarrassed-about/)
-- [what you think is what you say what you say is wha...](https://inspiration.allwomenstalk.com/tips-for-how-to-stop-saying-everything-you-think/)
-- [kohlbergs stages of moral development](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-kohlbergs-stages-of-moral-development/)
-- [the final stage of grief is typically remorse](https://lifestyle.allwomenstalk.com/typical-stages-of-grieving-for-you-to-know-about/)
 - [what kind of lesson can we learn from mother earth](https://inspiration.allwomenstalk.com/things-mother-nature-can-teach-us/)
 - [happy things to think about](https://inspiration.allwomenstalk.com/things-you-think-will-make-you-happy-but-wont/)
-- [qualities to become a model](https://teen.allwomenstalk.com/characteristics-to-look-for-in-a-role-model/)
-- [navigating your 20s](https://lifestyle.allwomenstalk.com/things-to-know-about-your-20s/)
 - [how do you know if you have a true friend](https://teen.allwomenstalk.com/situations-that-reveal-who-your-true-friends-are/)
 - [things that you cant control](https://lifestyle.allwomenstalk.com/things-that-control-our-lives-on-a-daily-basis/)
+- [what to do when embarrassed at school](https://teen.allwomenstalk.com/things-we-all-do-in-class-that-you-shouldnt-feel-embarrassed-about/)
+- [kohlbergs stages of moral development](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-kohlbergs-stages-of-moral-development/)
+- [qualities to become a model](https://teen.allwomenstalk.com/characteristics-to-look-for-in-a-role-model/)
+- [navigating your 20s](https://lifestyle.allwomenstalk.com/things-to-know-about-your-20s/)
+- [what you think is what you say what you say is wha...](https://inspiration.allwomenstalk.com/tips-for-how-to-stop-saying-everything-you-think/)
+- [the final stage of grief is typically remorse](https://lifestyle.allwomenstalk.com/typical-stages-of-grieving-for-you-to-know-about/)
 - [What Really Matters ...](https://allwomenstalk.com/what-really-matters/)
 - [9 Things We Cannot Live without ...](https://allwomenstalk.com/9-things-we-cannot-live-without/)
 

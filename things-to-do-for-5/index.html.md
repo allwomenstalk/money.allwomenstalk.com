@@ -3,7 +3,7 @@ title: "8 Things to do for 5 ..."
 description: "Family Night; Date Night; New Outfit; Get Pampered; Save It; More ..."
 url: "https://money.allwomenstalk.com/things-to-do-for-5/"
 category: "money"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Things to do for 5 ...
@@ -47,16 +47,16 @@ Top Image Source: [fashionmodeldirectory.com](https://www.fashionmodeldirectory.
 
 ## Related Posts
 
-- [ideas first date](https://love.allwomenstalk.com/fun-first-date-ideas/)
-- [green items for kids](https://parenting.allwomenstalk.com/fun-green-activities-to-do-with-the-kids/)
-- [stylish laptop dpz](https://lifestyle.allwomenstalk.com/best-websites-to-procrastinate-with/)
 - [college coed parties](https://wedding.allwomenstalk.com/fun-ideas-for-a-co-ed-bachelorette-party/)
-- [theme party for kids](https://lifestyle.allwomenstalk.com/fun-kids-birthday-party-themes/)
-- [how to make money weekends](https://money.allwomenstalk.com/ways-for-teenagers-to-make-extra-cash-on-the-weekends/)
-- [how much does it cost to throw a house party](https://parenting.allwomenstalk.com/ways-to-throw-a-teenage-party-on-a-budget/)
-- [things to do when bkred](https://lifestyle.allwomenstalk.com/fun-thing-to-do-with-the-girls/)
 - [things that are spontaneous](https://lifestyle.allwomenstalk.com/fun-spontaneous-things-to-do-as-an-adult/)
+- [things to do when bkred](https://lifestyle.allwomenstalk.com/fun-thing-to-do-with-the-girls/)
+- [stylish laptop dpz](https://lifestyle.allwomenstalk.com/best-websites-to-procrastinate-with/)
+- [how to make money weekends](https://money.allwomenstalk.com/ways-for-teenagers-to-make-extra-cash-on-the-weekends/)
+- [green items for kids](https://parenting.allwomenstalk.com/fun-green-activities-to-do-with-the-kids/)
 - [unique frat party themes](https://lifestyle.allwomenstalk.com/unique-college-party-ideas/)
+- [how much does it cost to throw a house party](https://parenting.allwomenstalk.com/ways-to-throw-a-teenage-party-on-a-budget/)
+- [ideas first date](https://love.allwomenstalk.com/fun-first-date-ideas/)
+- [theme party for kids](https://lifestyle.allwomenstalk.com/fun-kids-birthday-party-themes/)
 - [10 Ways to Spend 1 around the World ...](https://travel.allwomenstalk.com/ways-to-spend-1-around-the-world/)
 - [10 Easy Ways to save up to 500 This Month ...](https://allwomenstalk.com/10-easy-ways-to-save-up-to-500-this-month/)
 
