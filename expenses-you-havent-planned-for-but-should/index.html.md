@@ -1,12 +1,12 @@
 ---
-title: "If You Havent Planned for These Expenses You Should ..."
+title: "If You Haven't Planned for These Expenses, You Should ..."
 description: "Car Trouble; Medical Expenses; Last-minute Trip; Sick Time; New Computer; More ..."
 url: "https://money.allwomenstalk.com/expenses-you-havent-planned-for-but-should/"
 category: "money"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# If You Havent Planned for These Expenses You Should ...
+# If You Haven't Planned for These Expenses, You Should ...
 
 You may take necessary precautions with your money, but there are probably expenses you haven't planned for. Unexpected expenses can occur at the worst times. And if you have to spend money unexpectedly, it can throw your budget off track. But with preparation, you can get through financial problems with ease. Here are seven expenses you haven't planned for, but should.
 
@@ -42,16 +42,16 @@ It isn't enough to deal with your recurring monthly expenses, you have to prepar
 
 ## Related Posts
 
-- [7 Reasons to Not Take Offense at Money Advice ...](https://money.allwomenstalk.com/reasons-to-not-take-offense-at-money-advice/)
-- [Is This Why Your Bills Are Skyrocketing ...](https://money.allwomenstalk.com/things-that-cause-your-bills-to-skyrocket/)
-- [i never get into debt](https://money.allwomenstalk.com/things-you-should-never-get-into-debt-for/)
-- [7 Surefire Ways to Succeed in Any Economy ...](https://money.allwomenstalk.com/surefire-ways-to-succeed-in-any-economy/)
-- [7 Ways Your Partner Can Ruin Your Finances ...](https://money.allwomenstalk.com/ways-your-partner-can-ruin-your-finances/)
 - [7 Ways to Avoid Post-college Money Nightmares ...](https://money.allwomenstalk.com/ways-to-avoid-post-college-money-nightmares/)
+- [Are You Earning Enough Money? ...](https://money.allwomenstalk.com/signs-that-youre-not-earning-enough-money/)
+- [Returning to School? 7 Ways to Prepare Your Money ...](https://money.allwomenstalk.com/returning-to-school-ways-to-prepare-your-money/)
+- [7 Surefire Ways to Succeed in Any Economy ...](https://money.allwomenstalk.com/surefire-ways-to-succeed-in-any-economy/)
+- [7 Reasons to Not Take Offense at Money Advice ...](https://money.allwomenstalk.com/reasons-to-not-take-offense-at-money-advice/)
 - [7 Common Excuses to Avoid Financial Responsibility...](https://money.allwomenstalk.com/common-excuses-to-avoid-financial-responsibility/)
-- [Are You Earning Enough Money ...](https://money.allwomenstalk.com/signs-that-youre-not-earning-enough-money/)
-- [Returning to School 7 Ways to Prepare Your Money ....](https://money.allwomenstalk.com/returning-to-school-ways-to-prepare-your-money/)
-- [How to Become a Personal Finance Whiz Even if Your...](https://money.allwomenstalk.com/personal-finance-tips-for-the-lazy/)
+- [How to Become a Personal Finance Whiz Even if You'...](https://money.allwomenstalk.com/personal-finance-tips-for-the-lazy/)
+- [i never get into debt](https://money.allwomenstalk.com/things-you-should-never-get-into-debt-for/)
+- [7 Ways Your Partner Can Ruin Your Finances ...](https://money.allwomenstalk.com/ways-your-partner-can-ruin-your-finances/)
+- [Is This Why Your Bills Are Skyrocketing? ...](https://money.allwomenstalk.com/things-that-cause-your-bills-to-skyrocket/)
 - [10 Tips for Smart Budget Planning ...](https://allwomenstalk.com/10-tips-for-smart-budget-planning/)
 - [7 Tips for Budgeting Your Finances ...](https://allwomenstalk.com/7-tips-for-budgeting-your-finances/)
 

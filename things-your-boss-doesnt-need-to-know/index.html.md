@@ -1,12 +1,12 @@
 ---
-title: "7 Things Your Boss Doesnt Need to Know ..."
+title: "7 Things Your Boss Doesn't Need to Know ..."
 description: "How You Spend Your Free Time; Spouse’s Income; Your Side Gigs; Political Views; You’re Looking for Other Opportunities; More ..."
 url: "https://money.allwomenstalk.com/things-your-boss-doesnt-need-to-know/"
 category: "money"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Things Your Boss Doesnt Need to Know ...
+# 7 Things Your Boss Doesn't Need to Know ...
 
 You might have a good relationship with your boss, but there are things your boss doesn't need to know. Nowadays, getting and keeping a job is challenging. Some people feel that they're good workers. And they’re often confused when they receive pink slips while other employees keep their jobs. There are several reasons why one person loses their job while another keeps their's. There's no way to protect your position; but if you keep a few things to yourself, you might reduce your risk of problems with your employer. Here are seven things your boss doesn't need to know.
 
@@ -42,17 +42,17 @@ Your boss might be the coolest guy or gal around, but at the end of the day, thi
 
 ## Related Posts
 
-- [The Biggest Things You Should Never Say to Your Ma...](https://funny.allwomenstalk.com/things-you-should-never-tell-a-man/)
-- [7 Words You Should Never Use at a Job Interview .....](https://money.allwomenstalk.com/words-you-should-never-use-at-a-job-interview/)
-- [9 Things You Shouldnt do when Youre Sick ...](https://health.allwomenstalk.com/things-you-shouldnt-do-when-youre-sick/)
 - [bad things to buy](https://money.allwomenstalk.com/of-the-worst-things-to-buy-used/)
-- [The Most Essential Dos and Donts of Saying Youre S...](https://inspiration.allwomenstalk.com/dos-and-donts-of-apologizing/)
+- [Social Media: the Dos & Don'ts ...](https://lifestyle.allwomenstalk.com/social-media-the-dos-donts/)
 - [7 Things Not to do when You Are Angry ...](https://inspiration.allwomenstalk.com/things-not-to-do-when-you-are-angry/)
 - [7 Things Not to do Right before You Graduate ...](https://teen.allwomenstalk.com/things-not-to-do-right-before-you-graduate/)
-- [7 Things Youll Regret in 7 Years ...](https://inspiration.allwomenstalk.com/things-youll-regret-in-7-years/)
-- [Social Media: the Dos  Donts ...](https://lifestyle.allwomenstalk.com/social-media-the-dos-donts/)
+- [7 Words You Should Never Use at a Job Interview .....](https://money.allwomenstalk.com/words-you-should-never-use-at-a-job-interview/)
+- [9 Things You Shouldn't do when You're Sick ...](https://health.allwomenstalk.com/things-you-shouldnt-do-when-youre-sick/)
+- [The Most Essential Dos and Don'ts of Saying You're...](https://inspiration.allwomenstalk.com/dos-and-donts-of-apologizing/)
+- [The Biggest Things You Should Never Say to Your Ma...](https://funny.allwomenstalk.com/things-you-should-never-tell-a-man/)
 - [7 Emotionally Abusive Things You Should Never Tell...](https://love.allwomenstalk.com/emotionally-abusive-things-you-should-never-tell-your-partner/)
-- [5 Things You Dont Know about Me ...](https://allwomenstalk.com/5-things-you-dont-know-about-me/)
+- [7 Things You'll Regret in 7 Years ...](https://inspiration.allwomenstalk.com/things-youll-regret-in-7-years/)
+- [5 Things You Don't Know about Me ...](https://allwomenstalk.com/5-things-you-dont-know-about-me/)
 - [8 Things NOT to Disclose on Facebook ...](https://allwomenstalk.com/8-things-not-to-disclose-on-facebook/)
 
 ## Site Information

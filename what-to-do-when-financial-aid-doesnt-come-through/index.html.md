@@ -1,12 +1,12 @@
 ---
-title: "What to do when Financial Aid Doesnt Come through ..."
+title: "What to do when Financial Aid Doesn't Come through ..."
 description: "Research; Call; Call Again; Look for outside Scholarships; Make a GoFunDMe; More ..."
 url: "https://money.allwomenstalk.com/what-to-do-when-financial-aid-doesnt-come-through/"
 category: "money"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# What to do when Financial Aid Doesnt Come through ...
+# What to do when Financial Aid Doesn't Come through ...
 
 So you did it, finally! You got into your dream school, but then financial aid didn't come through. The way things look now, you're going to be up to your eyeballs in debt by the time you graduate. But don't lose hope yet! There are still tons of options for your life after a financial aid flop.
 
@@ -42,16 +42,16 @@ Choosing a college should be an exciting experience! But, in some cases, it's mo
 
 ## Related Posts
 
-- [9 Ways You Can Give Back Even when Youre Broke ...](https://lifestyle.allwomenstalk.com/ways-you-can-give-back-even-when-youre-broke/)
-- [7 Major Money Mistakes Many People Are Making  ...](https://money.allwomenstalk.com/money-mistakes-young-people-dont-realize-theyre-making/)
-- [explain how your wants can sabotage your budget.](https://money.allwomenstalk.com/ways-youre-sabotaging-your-budget-without-realizing-it/)
-- [Smart Ways to Invest in Your Future ...](https://money.allwomenstalk.com/smart-ways-to-invest-in-your-future/)
+- [7 Major Money Mistakes Many People Are Making 🤐 ....](https://money.allwomenstalk.com/money-mistakes-young-people-dont-realize-theyre-making/)
+- [7 Things to Always Look at for People Who Want The...](https://money.allwomenstalk.com/if-you-shop-with-credit-cards-these-you-need-to-watch-out-for/)
 - [Setting Your First Ever Budget: How to do It in 7 ...](https://money.allwomenstalk.com/setting-your-first-ever-budget-how-to-do-it-in-easy-steps/)
+- [Credit Card Mistakes That Will (Literally) Cost Yo...](https://money.allwomenstalk.com/credit-card-mistakes-that-will-literally-cost-you/)
+- [To Share or Not to Share Income and Bills ...](https://money.allwomenstalk.com/to-share-or-not-to-share-income-and-bills/)
+- [Smart Ways to Invest in Your Future ...](https://money.allwomenstalk.com/smart-ways-to-invest-in-your-future/)
 - [How to Earn Extra Cash to Pay off Your Holiday Spl...](https://money.allwomenstalk.com/how-to-earn-extra-cash-to-pay-off-your-holiday-splurges/)
 - [9 Weird Ways to Amp up Your Savings Account Today ...](https://money.allwomenstalk.com/weird-ways-to-amp-up-your-savings-account/)
-- [To Share or Not to Share Income and Bills ...](https://money.allwomenstalk.com/to-share-or-not-to-share-income-and-bills/)
-- [Credit Card Mistakes That Will Literally Cost You ...](https://money.allwomenstalk.com/credit-card-mistakes-that-will-literally-cost-you/)
-- [7 Things to Always Look at for People Who Want The...](https://money.allwomenstalk.com/if-you-shop-with-credit-cards-these-you-need-to-watch-out-for/)
+- [explain how your wants can sabotage your budget.](https://money.allwomenstalk.com/ways-youre-sabotaging-your-budget-without-realizing-it/)
+- [9 Ways You Can Give Back Even when You're Broke .....](https://lifestyle.allwomenstalk.com/ways-you-can-give-back-even-when-youre-broke/)
 - [10 Ways to save Money for College ...](https://allwomenstalk.com/10-ways-to-save-money-for-college/)
 - [7 Facts about FAFSA to Know before Applying for Fe...](https://money.allwomenstalk.com/facts-about-fafsa-to-know-before-applying-for-federal-aid-for-your-college-studies/)
 

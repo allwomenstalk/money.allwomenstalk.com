@@ -3,7 +3,7 @@ title: "8 Rights You Have in the Workplace ..."
 description: "Employers Promises; Working off the Clock is Illegal; You Must Be Paid for All Work; You Must Receive Your Wages within a Certain Time; You Are Allowed to Discuss Your Salary with Co-workers; More ..."
 url: "https://money.allwomenstalk.com/rights-you-have-in-the-workplace/"
 category: "money"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 8 Rights You Have in the Workplace ...
@@ -48,16 +48,16 @@ Top Image Source: _vk.com_
 
 ## Related Posts
 
-- [7 Tips for a Good First Day at Work ...](https://lifestyle.allwomenstalk.com/tips-for-a-good-first-day-at-work/)
-- [7 Tips for a Better WorkLife Balance ...](https://lifestyle.allwomenstalk.com/tips-for-a-better-worklife-balance/)
-- [7 Reasons Why You Might Not Get Hired ...](https://money.allwomenstalk.com/reasons-why-you-might-not-get-hired/)
-- [9 Tips on How to Get a Great Internship ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-get-a-great-internship/)
-- [7 things to do when you get a raise at work](https://money.allwomenstalk.com/ways-to-get-a-raise/)
-- [what does your resume say about you](https://lifestyle.allwomenstalk.com/things-your-resume-says-about-you/)
-- [7 Tips on Dealing with Job Search Depression ...](https://lifestyle.allwomenstalk.com/tips-on-dealing-with-job-search-depression/)
 - [tips on how to network at work](https://money.allwomenstalk.com/tips-to-network-in-your-career/)
+- [what does your resume say about you](https://lifestyle.allwomenstalk.com/things-your-resume-says-about-you/)
+- [7 Tips for a Better Work/Life Balance ...](https://lifestyle.allwomenstalk.com/tips-for-a-better-worklife-balance/)
+- [9 Tips on How to Get a Great Internship ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-get-a-great-internship/)
+- [7 Tips on Dealing with Job Search Depression ...](https://lifestyle.allwomenstalk.com/tips-on-dealing-with-job-search-depression/)
+- [7 things to do when you get a raise at work](https://money.allwomenstalk.com/ways-to-get-a-raise/)
+- [7 Reasons Why You Might Not Get Hired ...](https://money.allwomenstalk.com/reasons-why-you-might-not-get-hired/)
 - [10 Must-Have Work Skills for 2013 ...](https://lifestyle.allwomenstalk.com/must-have-work-skills-for/)
 - [7 Helpful Hints on Nailing a Skype Interview ...](https://money.allwomenstalk.com/helpful-hints-on-nailing-a-skype-interview/)
+- [7 Tips for a Good First Day at Work ...](https://lifestyle.allwomenstalk.com/tips-for-a-good-first-day-at-work/)
 - [8 Great Tips to Look Professional at Work ...](https://fashion.allwomenstalk.com/8-great-tips-to-look-professional-at-work/)
 - [8 Ways to Tell if Your Career is Working for You ....](https://allwomenstalk.com/8-ways-to-tell-if-your-career-is-working-for-you/)
 

@@ -3,7 +3,7 @@ title: "7 Work Habits That Could Get You Fired ..."
 description: "Procrastination; Surfing the Web While at Work; Lying; Negativity; Tardiness; More ..."
 url: "https://money.allwomenstalk.com/work-habits-that-could-get-you-fired/"
 category: "money"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Work Habits That Could Get You Fired ...
@@ -44,16 +44,16 @@ There are a lot of things you shouldn’t do while you’re at work if you don�
 
 ## Related Posts
 
+- [how to sound professional on the phone](https://lifestyle.allwomenstalk.com/easy-ways-to-sound-more-professional/)
+- [careers that don't feel like work](https://money.allwomenstalk.com/careers-that-dont-feel-like-work/)
 - [surefire event staffing](https://money.allwomenstalk.com/surefire-ways-to-get-that-promotion-this-year/)
-- [easy things to become certified in](https://lifestyle.allwomenstalk.com/certifications-that-are-handy-to-have/)
-- [careers that dont feel like work](https://money.allwomenstalk.com/careers-that-dont-feel-like-work/)
+- [how to get job references](https://money.allwomenstalk.com/easy-tips-to-help-you-get-a-new-job-without-references/)
+- [things to know before a job interview](https://money.allwomenstalk.com/things-to-know-before-your-job-interview/)
+- [how to work faster and smarter](https://lifestyle.allwomenstalk.com/ways-to-work-smarter-and-faster-on-your-computer/)
 - [job dignity](https://money.allwomenstalk.com/ways-to-resign-from-your-job-with-dignity/)
 - [how to stay motivated as a freelancer](https://inspiration.allwomenstalk.com/simple-motivational-tips-for-freelancers/)
-- [things to know before a job interview](https://money.allwomenstalk.com/things-to-know-before-your-job-interview/)
-- [how to sound professional on the phone](https://lifestyle.allwomenstalk.com/easy-ways-to-sound-more-professional/)
-- [how to get job references](https://money.allwomenstalk.com/easy-tips-to-help-you-get-a-new-job-without-references/)
-- [how to work faster and smarter](https://lifestyle.allwomenstalk.com/ways-to-work-smarter-and-faster-on-your-computer/)
 - [competition at work](https://lifestyle.allwomenstalk.com/ways-to-deal-with-competition-at-work/)
+- [easy things to become certified in](https://lifestyle.allwomenstalk.com/certifications-that-are-handy-to-have/)
 - [7 Bad Habits to Kick ...](https://allwomenstalk.com/7-bad-habits-to-kick/)
 - [7 Things You Are Doing That Could Get You Fired .....](https://allwomenstalk.com/7-things-you-are-doing-that-could-get-you-fired/)
 

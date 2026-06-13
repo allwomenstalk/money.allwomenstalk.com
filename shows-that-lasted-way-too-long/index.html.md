@@ -3,7 +3,7 @@ title: "15 Shows That Lasted Way Too Long ..."
 description: "Friends; E.R; SNL; Glee; Grey’s Anatomy; More ..."
 url: "https://money.allwomenstalk.com/shows-that-lasted-way-too-long/"
 category: "money"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 15 Shows That Lasted Way Too Long ...
@@ -74,16 +74,16 @@ I’m sure there are a few shows on this list that will get people mad at me. Ex
 
 ## Related Posts
 
-- [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
-- [taken miniseries streaming](https://movies.allwomenstalk.com/completed-tv-series-to-stream-instantly-on-netflix/)
-- [videos of funny pranks](https://lifestyle.allwomenstalk.com/funny-youtube-pranks-thatll-surely-make-you-smile/)
-- [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
 - [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
 - [felicia day chris hardwick](https://lifestyle.allwomenstalk.com/great-youtube-shows/)
-- [top 10 worst series finales](https://movies.allwomenstalk.com/worst-tv-series-finales-that-should-be-changed/)
-- [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
-- [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
 - [regular show acid trip episode](https://movies.allwomenstalk.com/kids-cartoons-that-adults-watch-too/)
+- [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
+- [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
+- [videos of funny pranks](https://lifestyle.allwomenstalk.com/funny-youtube-pranks-thatll-surely-make-you-smile/)
+- [top 10 worst series finales](https://movies.allwomenstalk.com/worst-tv-series-finales-that-should-be-changed/)
+- [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
+- [taken miniseries streaming](https://movies.allwomenstalk.com/completed-tv-series-to-stream-instantly-on-netflix/)
+- [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
 - [7 Interesting Reality TV Shows ...](https://allwomenstalk.com/7-interesting-reality-tv-shows/)
 - [8 Worst Reality Shows ...](https://allwomenstalk.com/8-worst-reality-shows/)
 

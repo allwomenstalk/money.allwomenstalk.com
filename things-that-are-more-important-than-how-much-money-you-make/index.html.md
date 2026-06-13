@@ -3,7 +3,7 @@ title: "8 Things That Are More Important than How Much Money You Make ..."
 description: "Your Health; Your Family; Your Happiness; Your Relationship with Your Partner; Your Level of Contentment in Your Job; More ..."
 url: "https://money.allwomenstalk.com/things-that-are-more-important-than-how-much-money-you-make/"
 category: "money"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 8 Things That Are More Important than How Much Money You Make ...
@@ -51,11 +51,11 @@ These are 8 things that are more important than money. What would you add to thi
 - [the king explodes this cool guy my gardener met ye...](https://lifestyle.allwomenstalk.com/wait-till-you-read-this-you-will-never-be-superstitious-again/)
 - [weird paradoxes](https://lifestyle.allwomenstalk.com/weird-paradoxes-that-will-give-you-a-real-headache/)
 - [things lucky](https://inspiration.allwomenstalk.com/things-youre-lucky-to-have-in-your-life/)
-- [things people can be passionate about](https://money.allwomenstalk.com/things-successful-people-are-passionate-about/)
 - [teenager pro tips](https://teen.allwomenstalk.com/the-best-bits-of-wisdom-for-teenagers-everywhere/)
-- [you cant blame anyone but yourself](https://inspiration.allwomenstalk.com/things-you-cant-blame-yourself-for/)
-- [i am not capable](https://inspiration.allwomenstalk.com/incredible-things-youre-capable-of/)
+- [things people can be passionate about](https://money.allwomenstalk.com/things-successful-people-are-passionate-about/)
 - [happiness questions to ask](https://inspiration.allwomenstalk.com/questions-you-need-to-ask-yourself-to-find-true-happiness/)
+- [i am not capable](https://inspiration.allwomenstalk.com/incredible-things-youre-capable-of/)
+- [you can't blame anyone but yourself](https://inspiration.allwomenstalk.com/things-you-cant-blame-yourself-for/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
 - [7 Things to Be Serious about ...](https://7fun.net/7-things-to-be-serious-about/)
 

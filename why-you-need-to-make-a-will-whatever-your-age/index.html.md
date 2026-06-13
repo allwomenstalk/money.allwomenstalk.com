@@ -1,12 +1,12 @@
 ---
-title: "Why You Need to Make a Will Whatever Your Age ..."
+title: "Why You Need to Make a Will (Whatever Your Age) ..."
 description: "You Have Assets; You're Not Married; Certainty; State Your Wishes; Protect Your Loved Ones; More ..."
 url: "https://money.allwomenstalk.com/why-you-need-to-make-a-will-whatever-your-age/"
 category: "money"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Why You Need to Make a Will Whatever Your Age ...
+# Why You Need to Make a Will \(Whatever Your Age\) ...
 
 Making a will is probably far from your mind right now. It's something that only older people have to worry about, right? But failing to make a will isn't morbid, but rather a sensible decision. If you have anything to leave, don't assume that your assets will automatically pass to your partner; if you're not married, they won't be your next of kin. So here are the reasons why you need to make a will, whatever your age …
 
@@ -42,16 +42,16 @@ So do the sensible thing and make a will. It needn't be expensive if your affair
 
 ## Related Posts
 
-- [Stop Tearing Yourself down - Things You Deserve Ev...](https://inspiration.allwomenstalk.com/stop-tearing-yourself-down-things-you-deserve-even-though-you-dont-believe-it/)
+- [Here's What Anyone Dealing with Depression Should ...](https://health.allwomenstalk.com/heres-what-anyone-dealing-with-depression-should-remember/)
 - [What Everyone Should do before They Hit 20 ...](https://lifestyle.allwomenstalk.com/what-everyone-should-do-before-they-hit/)
 - [7 Inspiring Charitable Moments That Will Make You ...](https://inspiration.allwomenstalk.com/inspiring-charitable-moments-that-will-make-you-proud-to-be-a-human/)
-- [7 Truths about Beauty You Discover as an Adult ...](https://beauty.allwomenstalk.com/truths-about-beauty-you-discover-as-an-adult/)
-- [Who Are You These Personality Infographics Will He...](https://inspiration.allwomenstalk.com/who-are-you-these-personality-infographics-will-help-you-find-out/)
-- [stylo smoky amber rush](https://inspiration.allwomenstalk.com/in-honor-of-mothers-day-things-mom-really-was-right-about/)
 - [The Trick to Being Happy when Everything Seems lik...](https://inspiration.allwomenstalk.com/the-trick-to-being-happy-when-everything-seems-like-its-falling-apart/)
 - [keep your lips sealed](https://inspiration.allwomenstalk.com/silence-is-golden-times-in-life-when-you-should-keep-those-lips-sealed/)
+- [stylo smoky amber rush](https://inspiration.allwomenstalk.com/in-honor-of-mothers-day-things-mom-really-was-right-about/)
 - [You Can Be Independent and Still do These 7 Things...](https://inspiration.allwomenstalk.com/you-can-be-independent-and-still-do-these-things/)
-- [Heres What Anyone Dealing with Depression Should R...](https://health.allwomenstalk.com/heres-what-anyone-dealing-with-depression-should-remember/)
+- [7 Truths about Beauty You Discover as an Adult ...](https://beauty.allwomenstalk.com/truths-about-beauty-you-discover-as-an-adult/)
+- [Stop Tearing Yourself down - Things You Deserve, E...](https://inspiration.allwomenstalk.com/stop-tearing-yourself-down-things-you-deserve-even-though-you-dont-believe-it/)
+- [Who Are You? These Personality Infographics Will H...](https://inspiration.allwomenstalk.com/who-are-you-these-personality-infographics-will-help-you-find-out/)
 - [8 Reasons to Have Your Family Later ...](https://parenting.allwomenstalk.com/8-reasons-to-have-your-family-later/)
 - [12 Things You Should do before You Hit 25 ...](https://allwomenstalk.com/12-things-you-should-do-before-you-hit-25/)
 

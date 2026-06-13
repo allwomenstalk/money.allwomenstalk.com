@@ -1,12 +1,12 @@
 ---
-title: "7 Things You Shouldnt Say at an Office Party ..."
+title: "7 Things You Shouldn't Say at an Office Party ..."
 description: "Don’t Talk to Your Boss about Work; “I Want a Raise.”; Don’t Dispense Office Gossip; Don’t Criticize Everyone; Bringing up Unresolved Issues; More ..."
 url: "https://money.allwomenstalk.com/things-you-shouldnt-say-at-an-office-party/"
 category: "money"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Things You Shouldnt Say at an Office Party ...
+# 7 Things You Shouldn't Say at an Office Party ...
 
 Because in a lot of ways office parties seem like a social experiment, here are a few important things you shouldn’t say at an office party. An office party can be a nice time to relax and unwind with your colleagues but these get-togethers can have disastrous consequences too, especially if you’re planning to get ridiculously drunk or you want to tell some of your co-workers some home truths. If you are not careful, an office party can also mean an ideal opportunity to completely embarrass yourself and to erase everything that you worked for so hard so far. Here are 7 things you shouldn’t say at an office party that you should consider:
 
@@ -47,16 +47,16 @@ _blogs.browardpalmbeach.com_
 
 ## Related Posts
 
-- [7 Habits That Make You Seem Unprofessional ...](https://money.allwomenstalk.com/habits-that-make-you-seem-unprofessional/)
 - [12 Foods Never to Eat on a Date ...](https://food.allwomenstalk.com/foods-never-to-eat-on-a-date/)
-- [7 Activities to Avoid to Live a Healthier Life ...](https://health.allwomenstalk.com/activities-to-avoid-to-live-a-healthier-life/)
-- [7 Times Its Best to Avoid Social Media ...](https://lifestyle.allwomenstalk.com/times-its-best-to-avoid-social-media/)
-- [9 Things to Avoid Doing when Youre Super Stressed ...](https://health.allwomenstalk.com/things-to-avoid-doing-when-youre-super-stressed/)
-- [7 Icky Things That Lurk in Locker Rooms ...](https://health.allwomenstalk.com/icky-things-that-lurk-in-locker-rooms/)
-- [teen talking apps](https://teen.allwomenstalk.com/apps-teenagers-shouldnt-download/)
 - [7 Bad Habits That Drive Your Co-workers Crazy ...](https://money.allwomenstalk.com/bad-habits-that-drive-your-co-workers-crazy/)
-- [7 Cars Men Should Never Ever Drive ...](https://funny.allwomenstalk.com/cars-men-should-never-ever-drive/)
-- [7 Words to Avoid when Youre Flirting ...](https://love.allwomenstalk.com/words-to-avoid-when-youre-flirting/)
+- [7 Activities to Avoid to Live a Healthier Life ...](https://health.allwomenstalk.com/activities-to-avoid-to-live-a-healthier-life/)
+- [7 Words to Avoid when You're Flirting ...](https://love.allwomenstalk.com/words-to-avoid-when-youre-flirting/)
+- [7 Habits That Make You Seem Unprofessional ...](https://money.allwomenstalk.com/habits-that-make-you-seem-unprofessional/)
+- [7 Times It's Best to Avoid Social Media ...](https://lifestyle.allwomenstalk.com/times-its-best-to-avoid-social-media/)
+- [teen talking apps](https://teen.allwomenstalk.com/apps-teenagers-shouldnt-download/)
+- [7 Cars Men Should Never, Ever Drive ...](https://funny.allwomenstalk.com/cars-men-should-never-ever-drive/)
+- [9 Things to Avoid Doing when You're Super Stressed...](https://health.allwomenstalk.com/things-to-avoid-doing-when-youre-super-stressed/)
+- [7 Icky Things That Lurk in Locker Rooms ...](https://health.allwomenstalk.com/icky-things-that-lurk-in-locker-rooms/)
 - [8 Things Not to do at a Wedding ...](https://fashion.allwomenstalk.com/8-things-not-to-do-at-a-wedding/)
 - [8 Things You Should Not do at Your Wedding ...](https://allwomenstalk.com/8-things-you-should-not-do-at-your-wedding/)
 

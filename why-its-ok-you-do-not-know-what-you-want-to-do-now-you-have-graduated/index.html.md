@@ -1,12 +1,12 @@
 ---
-title: "Why Its Ok You do Not Know What You Want to do Now You Have Graduated ..."
+title: "Why It's Ok You do Not Know What You Want to do 🤔 Now You Have Graduated ..."
 description: "LESS than 10% of the WORLD’S POPULATION HAS a DEGREE, and YOU ARE/WILL BE ONE of THEM!; BELIEVE IT or NOT, YOU’RE STILL YOUNG; YOU CAN TAKE THIS TIME to EXPLORE; PEOPLE CHANGE JOBS ALL the TIME, and THAT'S OK; LIFE after COLLEGE is the BEST TIME to DISCOVER YOUR NICHE; More ..."
 url: "https://money.allwomenstalk.com/why-its-ok-you-do-not-know-what-you-want-to-do-now-you-have-graduated/"
 category: "money"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Why Its Ok You do Not Know What You Want to do  Now You Have Graduated ...
+# Why It's Ok You do Not Know What You Want to do 🤔 Now You Have Graduated ...
 
 If you’re in that confusing and seemingly terrifying stage of your life where you don’t know what you want to now you’ve graduated, you are not alone. Don’t push the panic button! It’s perfectly normal to feel this way. Plenty of students go to college/university to study a subject without having any idea of how it fits into their future career plans – or even if they have a career plan at all. If you’re at this point in your life, stop stressing and realise the amazing potential that lies ahead of you! Here are some reasons **why it’s OK that you don’t know what you want to do now you have graduated**:
 
@@ -40,16 +40,16 @@ There’s no manual anywhere that says that you have to graduate at “this” t
 
 ## Related Posts
 
-- [pumpkin seeds quotes](https://inspiration.allwomenstalk.com/keep-the-faith-even-the-size-of-a-pumpkin-seed/)
-- [A Better Way to Look at Death ...](https://inspiration.allwomenstalk.com/a-better-way-to-look-at-death/)
 - [Exceptional Things Mentally Strong People do ...](https://inspiration.allwomenstalk.com/exceptional-things-mentally-strong-people-do/)
-- [Uncomfortable Things You Must Deal with Head on fo...](https://inspiration.allwomenstalk.com/uncomfortable-things-you-must-deal-with-head-on-for-a-comfortable-life/)
-- [The Importance of a Support System when You Have a...](https://health.allwomenstalk.com/the-importance-of-a-support-system-when-you-have-a-mental-illness/)
-- [The Easiest Way Isnt Always the Easiest Way ...](https://inspiration.allwomenstalk.com/the-easiest-way-isnt-always-the-easiest-way/)
-- [Why Being a Geek Isnt a Bad Thing ...](https://inspiration.allwomenstalk.com/why-being-a-geek-isnt-a-bad-thing/)
-- [Dont Take Your Second 2 and Third 3 Chance for Gra...](https://inspiration.allwomenstalk.com/dont-take-your-second-2-and-third-3-chance-for-granted/)
-- [When  Not to Talk Yourself out of It ...](https://inspiration.allwomenstalk.com/when-not-to-talk-yourself-out-of-it/)
+- [pumpkin seeds quotes](https://inspiration.allwomenstalk.com/keep-the-faith-even-the-size-of-a-pumpkin-seed/)
 - [Why Forgiveness is Good for You ...](https://inspiration.allwomenstalk.com/why-forgiveness-is-good-for-you/)
+- [Uncomfortable Things You Must Deal with Head on fo...](https://inspiration.allwomenstalk.com/uncomfortable-things-you-must-deal-with-head-on-for-a-comfortable-life/)
+- [A Better Way to Look at Death ...](https://inspiration.allwomenstalk.com/a-better-way-to-look-at-death/)
+- [Why Being a Geek Isn't a Bad Thing ...](https://inspiration.allwomenstalk.com/why-being-a-geek-isnt-a-bad-thing/)
+- [The Easiest Way Isn't Always the Easiest Way ...](https://inspiration.allwomenstalk.com/the-easiest-way-isnt-always-the-easiest-way/)
+- [The Importance of a Support System when You Have a...](https://health.allwomenstalk.com/the-importance-of-a-support-system-when-you-have-a-mental-illness/)
+- [When 🤔 Not to Talk Yourself out of It ...](https://inspiration.allwomenstalk.com/when-not-to-talk-yourself-out-of-it/)
+- [Don't Take Your Second 2️⃣ and Third 3️⃣ Chance fo...](https://inspiration.allwomenstalk.com/dont-take-your-second-2-and-third-3-chance-for-granted/)
 - [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
 - [10 Ways to Help You Decide What You Want to do wit...](https://inspiration.allwomenstalk.com/ways-to-help-you-decide-what-you-want-to-do-with-your-life/)
 

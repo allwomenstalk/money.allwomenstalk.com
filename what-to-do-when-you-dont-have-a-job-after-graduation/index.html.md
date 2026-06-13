@@ -1,12 +1,12 @@
 ---
-title: "What to do when You Dont Have a Job after Graduation ..."
+title: "What to do when You Don't Have a Job after Graduation ..."
 description: "Go Part Time; Learn a New Skill; Work Program for Recent Grads; Grad School; Visit Family and Friends; More ..."
 url: "https://money.allwomenstalk.com/what-to-do-when-you-dont-have-a-job-after-graduation/"
 category: "money"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# What to do when You Dont Have a Job after Graduation ...
+# What to do when You Don't Have a Job after Graduation ...
 
 Wondering **what to do when you don't have a job after graduation**? For a student who has been working hard all the way through college, graduation should be a time of extreme celebration and a communal exhaling of relief from all of the exam and dissertation stress that has no doubt been plaguing your life for the past few months. However, graduation also feels like a double-edged sword, because at the same time as being told to relax, there is also a pressure to have a job lined up for yourself as soon as you have thrown that cap in the air! For some, a career seems to fall in to place very quickly, but for others, the path is not so clear. Here is **what to do when you don't have a job after graduation**.
 
@@ -32,16 +32,16 @@ Take that first summer after graduation to do all of the traveling and visiting 
 
 ## Related Posts
 
+- [it's boiling outside](https://fashion.allwomenstalk.com/how-to-look-professional-when-its-boiling-outside/)
 - [new job is a nightmare](https://money.allwomenstalk.com/nightmare-jobs-someone-has-to-do/)
-- [list of careers in fashion](https://fashion.allwomenstalk.com/fashion-careers-other-than-modeling/)
-- [how to become an expert in any field](https://money.allwomenstalk.com/become-an-expert-in-your-job-field-in-steps/)
-- [how to nail a skype interview](https://money.allwomenstalk.com/how-to-nail-a-skype-interview/)
-- [how to find a job in high school](https://money.allwomenstalk.com/how-to-find-a-job-in-high-school/)
-- [its boiling outside](https://fashion.allwomenstalk.com/how-to-look-professional-when-its-boiling-outside/)
-- [best cities to work remotely](https://lifestyle.allwomenstalk.com/best-cities-for-remote-workers-to-live-in/)
-- [career rut](https://money.allwomenstalk.com/brilliant-ways-to-break-out-of-a-career-rut/)
-- [elle woods graduation cap](https://money.allwomenstalk.com/what-your-college-degree-means-to-an-employer/)
 - [How to Turn Your Hobby into an Extraordinary Busin...](https://money.allwomenstalk.com/how-to-turn-your-hobby-into-an-extraordinary-business/)
+- [list of careers in fashion](https://fashion.allwomenstalk.com/fashion-careers-other-than-modeling/)
+- [career rut](https://money.allwomenstalk.com/brilliant-ways-to-break-out-of-a-career-rut/)
+- [how to find a job in high school](https://money.allwomenstalk.com/how-to-find-a-job-in-high-school/)
+- [elle woods graduation cap](https://money.allwomenstalk.com/what-your-college-degree-means-to-an-employer/)
+- [best cities to work remotely](https://lifestyle.allwomenstalk.com/best-cities-for-remote-workers-to-live-in/)
+- [how to nail a skype interview](https://money.allwomenstalk.com/how-to-nail-a-skype-interview/)
+- [how to become an expert in any field](https://money.allwomenstalk.com/become-an-expert-in-your-job-field-in-steps/)
 - [7 Easy Ways to Make Money in College without Worki...](https://money.allwomenstalk.com/easy-ways-to-make-money-in-college-without-working-your-life-away/)
 - [Things You Need to do before Heading off to Colleg...](https://teen.allwomenstalk.com/things-to-do-before-heading-off-to-college/)
 

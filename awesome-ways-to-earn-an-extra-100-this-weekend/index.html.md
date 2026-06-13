@@ -1,12 +1,12 @@
 ---
-title: "7 Awesome Ways to Earn an Extra 100 This Weekend ..."
+title: "7 Awesome Ways to Earn an Extra $100 This Weekend ..."
 description: "Have a Garage Sale; Sell Your Gold Jewelry; Mow Lawns; Babysit/pet Sit; Clean a Few Houses; More ..."
 url: "https://money.allwomenstalk.com/awesome-ways-to-earn-an-extra-100-this-weekend/"
 category: "money"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Awesome Ways to Earn an Extra 100 This Weekend ...
+# 7 Awesome Ways to Earn an Extra $100 This Weekend ...
 
 If you need money now, there are ways to earn an extra $100 this weekend. The fact that you can earn money so quickly might seem unbelievable -- but it can be done with creative thinking and determination.
 
@@ -42,16 +42,16 @@ Earning an extra $100 in just two days may seem impossible, but there are ways t
 
 ## Related Posts
 
-- [money stashes](https://money.allwomenstalk.com/clever-and-crafty-tips-for-stashing-your-cash-at-home/)
+- [budget infographics](https://money.allwomenstalk.com/money-infographics-that-will-save-your-budget-and-your-hard-earned-cash/)
+- [you have been saving your allowance](https://teen.allwomenstalk.com/tips-for-saving-spending-your-allowance/)
 - [starbucks kids temp](https://money.allwomenstalk.com/money-saving-starbucks-hacks-you-need-to-know-now/)
 - [making frugal fun](https://money.allwomenstalk.com/need-to-save-money-learn-some-fun-frugal-skills/)
-- [cashsavvy](https://money.allwomenstalk.com/get-cash-savvy-with-these-money-saving-infographics/)
-- [budget infographics](https://money.allwomenstalk.com/money-infographics-that-will-save-your-budget-and-your-hard-earned-cash/)
-- [genius ways to save money](https://money.allwomenstalk.com/heres-how-to-save-money-without-even-trying/)
 - [cash flow savvy](https://fitness.allwomenstalk.com/ways-to-keep-fit-when-youre-flat-broke/)
-- [coupon matching sites](https://money.allwomenstalk.com/score-some-deals-with-these-coupon-websites/)
-- [you have been saving your allowance](https://teen.allwomenstalk.com/tips-for-saving-spending-your-allowance/)
 - [alternative airports to boston](https://travel.allwomenstalk.com/alternate-airports-that-can-save-you-buckets-of-bucks/)
+- [money stashes](https://money.allwomenstalk.com/clever-and-crafty-tips-for-stashing-your-cash-at-home/)
+- [coupon matching sites](https://money.allwomenstalk.com/score-some-deals-with-these-coupon-websites/)
+- [genius ways to save money](https://money.allwomenstalk.com/heres-how-to-save-money-without-even-trying/)
+- [cashsavvy](https://money.allwomenstalk.com/get-cash-savvy-with-these-money-saving-infographics/)
 - [7 Ways to Earn Extra Money for a Big Goal ...](https://lifestyle.allwomenstalk.com/ways-to-earn-extra-money-for-a-big-goal/)
 - [9 Super Sources of Extra Cash ...](https://lifestyle.allwomenstalk.com/super-sources-of-extra-cash/)
 

@@ -1,12 +1,12 @@
 ---
-title: "7 Job Interview Questions You Dont Have to Answer ..."
+title: "7 Job Interview Questions You Don't Have to Answer ..."
 description: "Are You Married?; Do You Plan to Have Children?; What Religion do You Practice?; Do You Have Any Outstanding Debt?; What Country Are You Originally from?; More ..."
 url: "https://money.allwomenstalk.com/job-interview-questions-you-dont-have-to-answer/"
 category: "money"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Job Interview Questions You Dont Have to Answer ...
+# 7 Job Interview Questions You Don't Have to Answer ...
 
 If you've been searching for a job for quite some time and you would do anything to get hired, you should know that there are a few job interview questions you don’t have to answer. That's because they are inappropriate and they promote discriminatory hiring processes. Some interviewers can cross the line with these questions, because they want to learn everything they possibly can about the people they are interviewing. A recent study by Slater and Gordon showed that “40 percent of managers avoid hiring younger women to avoid dealing with maternity leave.” It’s important to be aware of the types of questions a potential employer shouldn’t ask during an interview. Here are 7 job interview questions you don’t have to answer to avoid becoming a victim of discrimination during a job interview:
 
@@ -45,16 +45,16 @@ Sources:
 
 ## Related Posts
 
-- [The Essential List of Things You Should do when Yo...](https://money.allwomenstalk.com/things-you-should-be-doing-when-you-are-unemployed/)
-- [7 Ways to Be Successful Working from Home ...](https://money.allwomenstalk.com/ways-to-be-successful-working-from-home/)
-- [7 Career Mistakes to Avoid in 2015 ...](https://money.allwomenstalk.com/career-mistakes-to-avoid-in/)
+- [Wait 'Til You See These 7 Ways Traveling Helps You...](https://travel.allwomenstalk.com/wait-til-you-see-these-ways-traveling-helps-your-career/)
 - [This is What to do when You Are between Jobs ...](https://money.allwomenstalk.com/this-is-what-to-do-when-you-are-between-jobs/)
-- [job trends 2015](https://money.allwomenstalk.com/workplace-and-career-trends-expected-in/)
+- [7 Myths about Choosing a Career That Aren't True ....](https://money.allwomenstalk.com/myths-about-choosing-a-career-that-arent-true/)
 - [7 Tips on How to Be Prepared and Calm during an In...](https://money.allwomenstalk.com/tips-on-how-to-be-prepared-and-calm-during-an-interview/)
-- [7 Myths about Choosing a Career That Arent True .....](https://money.allwomenstalk.com/myths-about-choosing-a-career-that-arent-true/)
+- [7 Career Mistakes to Avoid in 2015 ...](https://money.allwomenstalk.com/career-mistakes-to-avoid-in/)
+- [job trends 2015](https://money.allwomenstalk.com/workplace-and-career-trends-expected-in/)
+- [The Essential List of Things You Should do when Yo...](https://money.allwomenstalk.com/things-you-should-be-doing-when-you-are-unemployed/)
 - [7 Workplace Personalities That Grind Your Gears .....](https://money.allwomenstalk.com/workplace-personalities-that-grind-your-gears/)
+- [7 Ways to Be Successful Working from Home ...](https://money.allwomenstalk.com/ways-to-be-successful-working-from-home/)
 - [7 Life Skills That Will Impress Employers ...](https://money.allwomenstalk.com/life-skills-that-will-impress-employers/)
-- [Wait Til You See These 7 Ways Traveling Helps Your...](https://travel.allwomenstalk.com/wait-til-you-see-these-ways-traveling-helps-your-career/)
 - [7 Worst Interview Mistakes ...](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
 - [7 Ways to Answer the Question Why Should We Hire Y...](https://lifestyle.allwomenstalk.com/ways-to-answer-the-question-why-should-we-hire-you/)
 
