@@ -3,7 +3,7 @@ title: "7 Bad Money Moves to Avoid on a First Date ..."
 description: "Going Dutch; Using a Coupon; Bragging about Your Income; Don't Ask about Your Date's Income; Don't Ask about Your Date's Credit; More ..."
 url: "https://money.allwomenstalk.com/bad-money-moves-to-avoid-on-a-first-date/"
 category: "money"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Bad Money Moves to Avoid on a First Date ...
@@ -42,16 +42,16 @@ First dates can be intimidating and awkward. But there are ways to have a fantas
 
 ## Related Posts
 
-- [Avoid These Questions at All Costs during Your Job...](https://money.allwomenstalk.com/questions-to-avoid-during-a-job-interview/)
-- [7 Things Your Boyfriend Should Never Make You do f...](https://love.allwomenstalk.com/things-your-boyfriend-should-never-make-you-do-for-him/)
 - [a bad driving habit you should avoid is:](https://travel.allwomenstalk.com/bad-driving-habits-you-should-avoid/)
-- [7 things you should never do with aluminum foil](https://lifestyle.allwomenstalk.com/things-you-should-never-throw-away/)
+- [Avoid These Questions at All Costs during Your Job...](https://money.allwomenstalk.com/questions-to-avoid-during-a-job-interview/)
 - [7 Grammar Mistakes You Should Never Make Again ...](https://lifestyle.allwomenstalk.com/grammar-mistakes-you-should-never-make-again/)
-- [25 Things to Dump before You Turn 30 ...](https://lifestyle.allwomenstalk.com/things-to-dump-before-you-turn-30/)
+- [7 Unhealthy People You Need to Delete from Your Li...](https://inspiration.allwomenstalk.com/unhealthy-people-you-need-to-delete-from-your-life/)
 - [7 Pieces of Dating Advice to Ignore Totally ...](https://love.allwomenstalk.com/pieces-of-dating-advice-to-ignore-totally/)
+- [7 Things Your Boyfriend Should Never Make You do f...](https://love.allwomenstalk.com/things-your-boyfriend-should-never-make-you-do-for-him/)
+- [25 Things to Dump before You Turn 30 ...](https://lifestyle.allwomenstalk.com/things-to-dump-before-you-turn-30/)
 - [7 Times when You Should Avoid Alcohol ...](https://health.allwomenstalk.com/times-when-you-should-avoid-alcohol/)
 - [7 Things Grateful People Don't do ...](https://inspiration.allwomenstalk.com/things-grateful-people-dont-do/)
-- [7 Unhealthy People You Need to Delete from Your Li...](https://inspiration.allwomenstalk.com/unhealthy-people-you-need-to-delete-from-your-life/)
+- [7 things you should never do with aluminum foil](https://lifestyle.allwomenstalk.com/things-you-should-never-throw-away/)
 - [8 Undeniably Obvious First Date Don'ts ...](https://love.allwomenstalk.com/undeniably-obvious-first-date-donts/)
 - [7 Ways to Turn down a Date ...](https://love.allwomenstalk.com/ways-to-turn-down-a-date/)
 

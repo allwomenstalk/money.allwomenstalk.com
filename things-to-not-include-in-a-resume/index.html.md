@@ -3,7 +3,7 @@ title: "7 Things to Not Include in a Resume ..."
 description: "Irrelevant Information; Negative and/or Hateful Statements; Favorite Books/Movies Etc…; Jokes; Lies; More ..."
 url: "https://money.allwomenstalk.com/things-to-not-include-in-a-resume/"
 category: "money"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Things to Not Include in a Resume ...
@@ -44,16 +44,16 @@ Top Photo Credit: _data.whicdn.com_
 
 ## Related Posts
 
-- [10 Things That Are Ruining Your Smile ...](https://health.allwomenstalk.com/10-things-that-are-ruining-your-smile/)
-- [nice dinner](https://cooking.allwomenstalk.com/7-foods-you-shouldnt-make-for-a-romantic-dinner/)
 - [5 Things NOT to do in a Garden ...](https://gardening.allwomenstalk.com/5-things-not-to-do-in-a-garden/)
-- [10 Things to Absolutely and Definitely Not Buy dur...](https://money.allwomenstalk.com/things-to-absolutely-and-definitely-not-buy-during-the-holidays/)
-- [7 Things You Should Definitely Not Buy for Kids .....](https://parenting.allwomenstalk.com/7-things-you-should-definitely-not-buy-for-kids/)
-- [7 Things to Avoid when You Quit Smoking ...](https://health.allwomenstalk.com/7-things-to-avoid-when-you-quit-smoking/)
-- [5 Things Not to do in the Garden ...](https://gardening.allwomenstalk.com/5-things-not-to-do-in-the-garden/)
-- [jobs to avoid with copd](https://health.allwomenstalk.com/7-worst-jobs-for-the-health-of-your-lungs/)
 - [5 Thing Not to do in Your Garden ...](https://gardening.allwomenstalk.com/5-thing-not-to-do-in-your-garden/)
+- [7 Things You Should Definitely Not Buy for Kids .....](https://parenting.allwomenstalk.com/7-things-you-should-definitely-not-buy-for-kids/)
 - [healthtipstop](https://diet.allwomenstalk.com/most-useless-things-to-put-into-your-salad/)
+- [7 Things to Avoid when You Quit Smoking ...](https://health.allwomenstalk.com/7-things-to-avoid-when-you-quit-smoking/)
+- [nice dinner](https://cooking.allwomenstalk.com/7-foods-you-shouldnt-make-for-a-romantic-dinner/)
+- [jobs to avoid with copd](https://health.allwomenstalk.com/7-worst-jobs-for-the-health-of-your-lungs/)
+- [10 Things to Absolutely and Definitely Not Buy dur...](https://money.allwomenstalk.com/things-to-absolutely-and-definitely-not-buy-during-the-holidays/)
+- [10 Things That Are Ruining Your Smile ...](https://health.allwomenstalk.com/10-things-that-are-ruining-your-smile/)
+- [5 Things Not to do in the Garden ...](https://gardening.allwomenstalk.com/5-things-not-to-do-in-the-garden/)
 - [7 Ways to Ruin Your Resume ...](https://allwomenstalk.com/7-ways-to-ruin-your-resume/)
 - [8 Job Interview No-Nos ...](https://allwomenstalk.com/8-job-interview-no-nos/)
 

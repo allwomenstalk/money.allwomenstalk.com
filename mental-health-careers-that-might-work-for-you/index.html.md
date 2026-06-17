@@ -3,7 +3,7 @@ title: "6 Mental Health Careers That Might Work for You ..."
 description: "Health Coach; Alcohol and Drug Abuse Counselor; Marital and Family Therapist; Psychiatrist; Clinical Social Worker; More ..."
 url: "https://money.allwomenstalk.com/mental-health-careers-that-might-work-for-you/"
 category: "money"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 6 Mental Health Careers That Might Work for You ...
@@ -40,16 +40,16 @@ These are just a few of the mental health jobs out there that you can study for 
 
 ## Related Posts
 
-- [10 Ways to Make Money While out of Work ...](https://allwomenstalk.com/10-ways-to-make-money-while-out-of-work/)
-- [Steps into Your Dream Job ...](https://allwomenstalk.com/steps-into-your-dream-job/)
-- [working from home blues](https://lifestyle.allwomenstalk.com/how-to-beat-the-work-from-home-blues/)
-- [7 Effective Ways to Get a Raise at Work ...](https://allwomenstalk.com/7-effective-ways-to-get-a-raise-at-work/)
-- [UGH Applying for Work Online](https://allwomenstalk.com/ugh-applying-for-work-online/)
-- [15 Steps You Can Take to Secure Your Job ...](https://allwomenstalk.com/15-steps-you-can-take-to-secure-your-job/)
 - [5 do's and Dont's of Working from Home ...](https://allwomenstalk.com/5-dos-and-donts-of-working-from-home/)
-- [5 Tips on Dressing for a Successful Job Interview ...](https://allwomenstalk.com/5-tips-on-dressing-for-a-successful-job-interview/)
-- [Browsing Dating Sites at Work ...](https://allwomenstalk.com/browsing-dating-sites-at-work/)
+- [working from home blues](https://lifestyle.allwomenstalk.com/how-to-beat-the-work-from-home-blues/)
 - [You've Lost Your Job, Now What?](https://allwomenstalk.com/iyouve-lost-your-job-now-what/)
+- [15 Steps You Can Take to Secure Your Job ...](https://allwomenstalk.com/15-steps-you-can-take-to-secure-your-job/)
+- [10 Ways to Make Money While out of Work ...](https://allwomenstalk.com/10-ways-to-make-money-while-out-of-work/)
+- [Browsing Dating Sites at Work ...](https://allwomenstalk.com/browsing-dating-sites-at-work/)
+- [7 Effective Ways to Get a Raise at Work ...](https://allwomenstalk.com/7-effective-ways-to-get-a-raise-at-work/)
+- [Steps into Your Dream Job ...](https://allwomenstalk.com/steps-into-your-dream-job/)
+- [UGH Applying for Work Online](https://allwomenstalk.com/ugh-applying-for-work-online/)
+- [5 Tips on Dressing for a Successful Job Interview ...](https://allwomenstalk.com/5-tips-on-dressing-for-a-successful-job-interview/)
 - [9 Tips on How to Find a Job You'll like ...](https://money.allwomenstalk.com/tips-on-how-to-find-a-job-youll-like/)
 - [8 Ways to Tell if Your Career is Working for You ....](https://allwomenstalk.com/8-ways-to-tell-if-your-career-is-working-for-you/)
 

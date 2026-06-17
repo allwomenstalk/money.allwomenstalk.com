@@ -3,7 +3,7 @@ title: "7 Signs You're a Shopaholic ..."
 description: "Shopping is Always on Your Mind; You Can't Just Window Shop; Shopping Means a Lot to You; You Buy Things You Don't Need; The Words \"Sale\", \"Clearance\", and \"Free Shipping\" Make Your Day; More ..."
 url: "https://money.allwomenstalk.com/signs-you-are-a-shopaholic/"
 category: "money"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Signs You're a Shopaholic ...
@@ -57,13 +57,13 @@ You don't hesitate when you tell the cashier to charge it. You own multiple stor
 - [br email sign off](https://lifestyle.allwomenstalk.com/what-your-email-sign-off-says-about-you/)
 - [how to tell if your shoes fit](https://shoes.allwomenstalk.com/signs-your-shoes-dont-fit/)
 - [signs of a chill person](https://inspiration.allwomenstalk.com/signs-you-need-to-chill/)
-- [is a messy room a sign of intelligence](https://inspiration.allwomenstalk.com/weird-signs-that-show-youre-smart/)
-- [guardian angel signs](https://inspiration.allwomenstalk.com/inspiring-signs-your-guardian-angel-is-near/)
 - [nlj4wij3j24 -site:youtube.com](https://inspiration.allwomenstalk.com/signs-youre-more-intelligent-than-you-realize/)
 - [signs of nomophobia](https://lifestyle.allwomenstalk.com/what-is-nomophobia-and-signs-to-tell-you-have-it/)
 - [what is self absorbed mean](https://inspiration.allwomenstalk.com/signs-of-a-strong-personality-that-might-scare-people/)
 - [signs of lack of self-awareness](https://inspiration.allwomenstalk.com/signs-you-are-not-self-aware/)
 - [how to know if your house is haunted quiz](https://lifestyle.allwomenstalk.com/signs-your-house-might-be-haunted/)
+- [is a messy room a sign of intelligence](https://inspiration.allwomenstalk.com/weird-signs-that-show-youre-smart/)
+- [guardian angel signs](https://inspiration.allwomenstalk.com/inspiring-signs-your-guardian-angel-is-near/)
 - [7 Signs That You Are a Cheapskate ...](https://lifestyle.allwomenstalk.com/7-signs-that-you-are-a-cheapskate/)
 - [The Late Show with David Letterman's Top Ten Signs...](https://allwomenstalk.com/the-late-show-with-david-lettermans-top-ten-signs-youre-a-shopaholic/)
 

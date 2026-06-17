@@ -3,7 +3,7 @@ title: "7 of the Best Jobs for the Socially Awkward ..."
 description: "Social Media Manager; Writer; Astronomer; The World of IT; Animal Handlers; More ..."
 url: "https://money.allwomenstalk.com/of-the-best-jobs-for-the-socially-awkward/"
 category: "money"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 of the Best Jobs for the Socially Awkward ...
@@ -43,15 +43,15 @@ These were only a few of the (actually quite many) jobs that can fit us, introve
 ## Related Posts
 
 - [lawyer personality types](https://money.allwomenstalk.com/useful-infographics-to-help-your-career/)
-- [i don't want to become a doctor](https://money.allwomenstalk.com/careers-in-medicine-if-you-dont-want-to-be-a-doctor/)
-- [how to approach boss about raise](https://money.allwomenstalk.com/strategies-to-get-a-raise-without-asking/)
 - [what to say for a follow up interview](https://money.allwomenstalk.com/things-to-say-in-your-interview-follow-up-letter/)
+- [how to approach boss about raise](https://money.allwomenstalk.com/strategies-to-get-a-raise-without-asking/)
+- [things to consider before choosing a career](https://money.allwomenstalk.com/steps-to-take-before-choosing-a-career/)
+- [best places for a hidden tattoo](https://beauty.allwomenstalk.com/spots-to-get-a-tattoo-that-employers-wont-care-about/)
+- [business savvy](https://apps.allwomenstalk.com/websites-to-make-you-business-savvy/)
+- [i don't want to become a doctor](https://money.allwomenstalk.com/careers-in-medicine-if-you-dont-want-to-be-a-doctor/)
 - [careers that pay you to travel](https://travel.allwomenstalk.com/careers-that-could-take-you-around-the-world/)
 - [the 3 things you should do first if you lose your ...](https://money.allwomenstalk.com/important-first-steps-to-take-when-you-lose-your-job/)
 - [skills needed to become an entrepreneur](https://money.allwomenstalk.com/skills-you-need-to-be-an-entrepreneur/)
-- [things to consider before choosing a career](https://money.allwomenstalk.com/steps-to-take-before-choosing-a-career/)
-- [business savvy](https://apps.allwomenstalk.com/websites-to-make-you-business-savvy/)
-- [best places for a hidden tattoo](https://beauty.allwomenstalk.com/spots-to-get-a-tattoo-that-employers-wont-care-about/)
 - [7 Bad Social Behaviors Nobody Should Be Exposed to...](https://allwomenstalk.com/7-bad-social-behaviors-nobody-should-be-exposed-to/)
 - [7 Life Lessons from Awkward ...](https://lifestyle.allwomenstalk.com/life-lessons-from-awkward/)
 

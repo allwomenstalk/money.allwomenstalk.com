@@ -3,7 +3,7 @@ title: "7 Ways to Tell if You Have a Shopping Addiction ..."
 description: "You Have Unworn or Unused Items in Your Closet; You Lie about How Much You Spent; Shopping is What You Turn to when You’re Emotional; You Have Maxed out Several Credit Cards; You Argue with Family over Your Shopping Habits; More ..."
 url: "https://money.allwomenstalk.com/ways-to-tell-if-you-have-a-shopping-addiction/"
 category: "money"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Ways to Tell if You Have a Shopping Addiction ...
@@ -42,14 +42,14 @@ I love shopping as much as the next girl. I’ve had to be careful not to let it
 
 ## Related Posts
 
-- [signs of a dead end job and what to do about it](https://money.allwomenstalk.com/very-obvious-signs-you-are-stuck-in-a-dead-end-job/)
-- [اذا شك هل هو مني أو مذي بعد الاحتلام](https://lifestyle.allwomenstalk.com/signs-that-you-need-to-make-a-change-in-your-life/)
-- [how do you know it's time to change jobs](https://lifestyle.allwomenstalk.com/signs-its-time-to-change-your-job/)
-- [signs of bad company friends](https://lifestyle.allwomenstalk.com/warning-signs-you-are-in-bad-company-you-should-know-about/)
-- [when to get rid of old clothes](https://fashion.allwomenstalk.com/signs-its-time-to-get-rid-of-old-clothes/)
+- [signs there is no growth at work](https://lifestyle.allwomenstalk.com/crucial-signs-youve-outgrown-your-job/)
 - [new page of life meaning](https://inspiration.allwomenstalk.com/signs-its-time-to-start-a-new-chapter-in-your-life/)
 - [signs of a bad company](https://lifestyle.allwomenstalk.com/signs-you-work-for-a-bad-company/)
-- [signs there is no growth at work](https://lifestyle.allwomenstalk.com/crucial-signs-youve-outgrown-your-job/)
+- [signs of bad company friends](https://lifestyle.allwomenstalk.com/warning-signs-you-are-in-bad-company-you-should-know-about/)
+- [how do you know it's time to change jobs](https://lifestyle.allwomenstalk.com/signs-its-time-to-change-your-job/)
+- [signs of a dead end job and what to do about it](https://money.allwomenstalk.com/very-obvious-signs-you-are-stuck-in-a-dead-end-job/)
+- [اذا شك هل هو مني أو مذي بعد الاحتلام](https://lifestyle.allwomenstalk.com/signs-that-you-need-to-make-a-change-in-your-life/)
+- [when to get rid of old clothes](https://fashion.allwomenstalk.com/signs-its-time-to-get-rid-of-old-clothes/)
 - [ipad addiction](https://lifestyle.allwomenstalk.com/signs-you-are-addicted-to-your-ipad/)
 - [how to know if you love your job](https://lifestyle.allwomenstalk.com/very-telling-signs-you-love-your-job/)
 - [The Late Show with David Letterman's Top Ten Signs...](https://allwomenstalk.com/the-late-show-with-david-lettermans-top-ten-signs-youre-a-shopaholic/)
