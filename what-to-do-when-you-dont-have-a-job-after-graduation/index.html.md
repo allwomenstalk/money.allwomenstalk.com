@@ -3,7 +3,7 @@ title: "What to do when You Don't Have a Job after Graduation ..."
 description: "Go Part Time; Learn a New Skill; Work Program for Recent Grads; Grad School; Visit Family and Friends; More ..."
 url: "https://money.allwomenstalk.com/what-to-do-when-you-dont-have-a-job-after-graduation/"
 category: "money"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # What to do when You Don't Have a Job after Graduation ...
@@ -32,16 +32,16 @@ Take that first summer after graduation to do all of the traveling and visiting 
 
 ## Related Posts
 
-- [best cities to work remotely](https://lifestyle.allwomenstalk.com/best-cities-for-remote-workers-to-live-in/)
-- [how to find a job in high school](https://money.allwomenstalk.com/how-to-find-a-job-in-high-school/)
+- [elle woods graduation cap](https://money.allwomenstalk.com/what-your-college-degree-means-to-an-employer/)
+- [how to become an expert in any field](https://money.allwomenstalk.com/become-an-expert-in-your-job-field-in-steps/)
 - [list of careers in fashion](https://fashion.allwomenstalk.com/fashion-careers-other-than-modeling/)
+- [How to Turn Your Hobby into an Extraordinary Busin...](https://money.allwomenstalk.com/how-to-turn-your-hobby-into-an-extraordinary-business/)
 - [how to nail a skype interview](https://money.allwomenstalk.com/how-to-nail-a-skype-interview/)
 - [it's boiling outside](https://fashion.allwomenstalk.com/how-to-look-professional-when-its-boiling-outside/)
-- [career rut](https://money.allwomenstalk.com/brilliant-ways-to-break-out-of-a-career-rut/)
-- [elle woods graduation cap](https://money.allwomenstalk.com/what-your-college-degree-means-to-an-employer/)
-- [How to Turn Your Hobby into an Extraordinary Busin...](https://money.allwomenstalk.com/how-to-turn-your-hobby-into-an-extraordinary-business/)
 - [new job is a nightmare](https://money.allwomenstalk.com/nightmare-jobs-someone-has-to-do/)
-- [how to become an expert in any field](https://money.allwomenstalk.com/become-an-expert-in-your-job-field-in-steps/)
+- [best cities to work remotely](https://lifestyle.allwomenstalk.com/best-cities-for-remote-workers-to-live-in/)
+- [how to find a job in high school](https://money.allwomenstalk.com/how-to-find-a-job-in-high-school/)
+- [career rut](https://money.allwomenstalk.com/brilliant-ways-to-break-out-of-a-career-rut/)
 - [7 Easy Ways to Make Money in College without Worki...](https://money.allwomenstalk.com/easy-ways-to-make-money-in-college-without-working-your-life-away/)
 - [Things You Need to do before Heading off to Colleg...](https://teen.allwomenstalk.com/things-to-do-before-heading-off-to-college/)
 

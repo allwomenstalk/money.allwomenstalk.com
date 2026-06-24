@@ -3,7 +3,7 @@ title: "6 Things That Job Hunters do That Piss off Recruiters ..."
 description: "A Poorly Put Together Resume; No Email Address; No Research on the Company; Functional Resume; Overenthusiasm; More ..."
 url: "https://money.allwomenstalk.com/things-that-job-hunters-do-that-piss-off-recruiters/"
 category: "money"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 6 Things That Job Hunters do That Piss off Recruiters ...
@@ -36,16 +36,16 @@ Ok, so Works or Word Perfect are not necessarily wrong, but Microsoft Word is th
 
 ## Related Posts
 
+- [10 Simple Steps to Becoming a Freelancer ...](https://money.allwomenstalk.com/steps-to-becoming-a-freelancer/)
+- [7 Simple Ways to Enhance Your Business Productivit...](https://money.allwomenstalk.com/simple-ways-to-enhance-your-business-productivity/)
+- [finding a job in london](https://money.allwomenstalk.com/tips-for-finding-a-job-in-london/)
+- [Tips for Finding a Job after College ...](https://money.allwomenstalk.com/tips-for-finding-a-job-after-college/)
 - [Using Internship as the First Step to a Successful...](https://money.allwomenstalk.com/using-internship-as-the-first-step-to-a-successful-career/)
 - [How to Be Your Own Boss by 25 ...](https://money.allwomenstalk.com/how-to-be-your-own-boss-by/)
-- [10 Simple Steps to Becoming a Freelancer ...](https://money.allwomenstalk.com/steps-to-becoming-a-freelancer/)
-- [The 7 Essential Traits You Need to Be Your Own Bos...](https://money.allwomenstalk.com/the-essential-traits-you-need-to-be-your-own-boss/)
-- [finding a job in london](https://money.allwomenstalk.com/tips-for-finding-a-job-in-london/)
-- [How to Ask Your Boss for Flexible Working ...](https://money.allwomenstalk.com/how-to-ask-your-boss-for-flexible-working/)
-- [Tips for Finding a Job after College ...](https://money.allwomenstalk.com/tips-for-finding-a-job-after-college/)
-- [7 Simple Ways to Enhance Your Business Productivit...](https://money.allwomenstalk.com/simple-ways-to-enhance-your-business-productivity/)
-- [Well Paying Part Time Jobs for Students ...](https://money.allwomenstalk.com/good-paying-part-time-jobs-for-students/)
 - [Learn How to Be an Effective Leader Right Here ...](https://money.allwomenstalk.com/learn-how-to-be-an-effective-leader-right-here/)
+- [Well Paying Part Time Jobs for Students ...](https://money.allwomenstalk.com/good-paying-part-time-jobs-for-students/)
+- [How to Ask Your Boss for Flexible Working ...](https://money.allwomenstalk.com/how-to-ask-your-boss-for-flexible-working/)
+- [The 7 Essential Traits You Need to Be Your Own Bos...](https://money.allwomenstalk.com/the-essential-traits-you-need-to-be-your-own-boss/)
 - [7 Things to Not Include in a Resume ...](https://money.allwomenstalk.com/things-to-not-include-in-a-resume/)
 - [5 Things That Annoy Most People...](https://allwomenstalk.com/5-things-that-annoy-most-people/)
 

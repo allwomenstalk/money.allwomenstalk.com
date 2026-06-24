@@ -3,7 +3,7 @@ title: "25 Shocking Things I Could Buy with My Student Debt ..."
 description: "A down Payment for a House; Rent; A New Car; Student Books for 20 Years; A Luxury Box to the NBA Finals - Almost; More ..."
 url: "https://money.allwomenstalk.com/things-i-could-buy-with-my-student-debt/"
 category: "money"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 25 Shocking Things I Could Buy with My Student Debt ...
@@ -116,16 +116,16 @@ The average undergrad might owe $25,000 a year, but graduate students owe around
 
 ## Related Posts
 
-- [9 Smart Money Management Tips You Need for a Healt...](https://money.allwomenstalk.com/smart-money-management-tips-you-need-for-a-healthy-financial-future/)
-- [The Practical Application of the Four Buddhist Tru...](https://money.allwomenstalk.com/the-practical-application-of-the-four-buddhist-truths-to-your-finances/)
-- [future in his 20s](https://inspiration.allwomenstalk.com/perfect-ways-to-invest-in-your-future-in-your-20s/)
-- [we spend money for different reasons](https://money.allwomenstalk.com/reasons-why-you-spend-money-the-way-you-do/)
 - [8 Common Mistakes of Beginning Entrepreneurs ...](https://money.allwomenstalk.com/common-mistakes-of-beginning-entrepreneurs/)
-- [5 Habits You Need to Achieve Financial Freedom ...](https://money.allwomenstalk.com/habits-you-need-to-achieve-financial-freedom/)
 - [5 Helpful Tips for Becoming Financially Literate ....](https://money.allwomenstalk.com/helpful-tips-for-becoming-financially-literate/)
-- [How to Start a Business without Money ...](https://money.allwomenstalk.com/how-to-start-a-business-without-money/)
-- [Battlefield: How to Fight with Your Debts ...](https://money.allwomenstalk.com/battlefield-how-to-fight-with-your-debts/)
+- [we spend money for different reasons](https://money.allwomenstalk.com/reasons-why-you-spend-money-the-way-you-do/)
+- [future in his 20s](https://inspiration.allwomenstalk.com/perfect-ways-to-invest-in-your-future-in-your-20s/)
+- [The Practical Application of the Four Buddhist Tru...](https://money.allwomenstalk.com/the-practical-application-of-the-four-buddhist-truths-to-your-finances/)
 - [Want to Become a Millionaire before You Turn 30? R...](https://money.allwomenstalk.com/want-to-become-a-millionaire-before-you-turn-30-read-this-article-now/)
+- [5 Habits You Need to Achieve Financial Freedom ...](https://money.allwomenstalk.com/habits-you-need-to-achieve-financial-freedom/)
+- [How to Start a Business without Money ...](https://money.allwomenstalk.com/how-to-start-a-business-without-money/)
+- [9 Smart Money Management Tips You Need for a Healt...](https://money.allwomenstalk.com/smart-money-management-tips-you-need-for-a-healthy-financial-future/)
+- [Battlefield: How to Fight with Your Debts ...](https://money.allwomenstalk.com/battlefield-how-to-fight-with-your-debts/)
 - [8 Great Ways to save Money as a College Student .....](https://allwomenstalk.com/ways-to-save-money-as-a-student/)
 - [9 Things Worth Spending on ...](https://allwomenstalk.com/10-things-worth-spending-on/)
 
