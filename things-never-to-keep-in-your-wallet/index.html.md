@@ -3,7 +3,7 @@ title: "11 Things Never to Keep in Your Wallet ..."
 description: "Passwords and PINS; Social Security Card; Checks; Spare Key; Passport; More ..."
 url: "https://money.allwomenstalk.com/things-never-to-keep-in-your-wallet/"
 category: "money"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 11 Things Never to Keep in Your Wallet ...
@@ -61,14 +61,14 @@ This article was written in collaboration with editor Lydia Sheehan.
 ## Related Posts
 
 - [things flight attendants hate](https://travel.allwomenstalk.com/things-that-piss-off-your-flight-attendant/)
-- [bad facebook posts](https://lifestyle.allwomenstalk.com/things-to-avoid-on-facebook/)
-- [missy dyes her hair](https://hair.allwomenstalk.com/hair-faux-pas-you-shouldnt-allow-yourself-to-do/)
-- [old wives tale warts](https://lifestyle.allwomenstalk.com/old-wives-tales-you-dont-want-to-be-taking-seriously/)
-- [do guys wear maxi pads](https://health.allwomenstalk.com/reasons-why-you-should-never-wear-maxi-pads-again/)
-- [what is casual sexism](https://lifestyle.allwomenstalk.com/examples-of-casual-sexism-you-should-know-about/)
 - [what should you not tell your coworkers](https://lifestyle.allwomenstalk.com/things-never-to-say-to-your-co-workers/)
-- [bad habits that start with m](https://lifestyle.allwomenstalk.com/bad-habits-to-stop-before-they-start/)
+- [missy dyes her hair](https://hair.allwomenstalk.com/hair-faux-pas-you-shouldnt-allow-yourself-to-do/)
 - [social habit](https://lifestyle.allwomenstalk.com/social-habits-you-should-break/)
+- [do guys wear maxi pads](https://health.allwomenstalk.com/reasons-why-you-should-never-wear-maxi-pads-again/)
+- [bad habits that start with m](https://lifestyle.allwomenstalk.com/bad-habits-to-stop-before-they-start/)
+- [old wives tale warts](https://lifestyle.allwomenstalk.com/old-wives-tales-you-dont-want-to-be-taking-seriously/)
+- [what is casual sexism](https://lifestyle.allwomenstalk.com/examples-of-casual-sexism-you-should-know-about/)
+- [bad facebook posts](https://lifestyle.allwomenstalk.com/things-to-avoid-on-facebook/)
 - [stuff to buy at the grocery store](https://lifestyle.allwomenstalk.com/things-you-should-never-buy-at-the-grocery-store/)
 - [8 Places Not to Use Your Debit Card in ...](https://allwomenstalk.com/8-places-not-to-use-your-debit-card/)
 - [8 Things to Keep in Your Wallet ...](https://allwomenstalk.com/8-things-to-keep-in-your-wallet/)

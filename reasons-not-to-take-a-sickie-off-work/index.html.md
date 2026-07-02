@@ -3,7 +3,7 @@ title: "7 Reasons Not to Take a Sickie off Work ..."
 description: "It's Dishonest; Found out; Unfair to Co-Workers; Crying Wolf; In the Lurch; More ..."
 url: "https://money.allwomenstalk.com/reasons-not-to-take-a-sickie-off-work/"
 category: "money"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Reasons Not to Take a  Sickie off Work ...
@@ -42,16 +42,16 @@ You might think it doesn't matter if you fake illness every once in a while, but
 
 ## Related Posts
 
-- [disadvantages of popping pimples](https://skincare.allwomenstalk.com/majorly-important-reasons-not-to-pop-a-pimple/)
-- [7 Reasons You Should Learn to Say No to Others ...](https://inspiration.allwomenstalk.com/reasons-you-should-learn-to-say-no-to-others/)
 - [Understanding Why It's Cool to Embrace the Single ...](https://love.allwomenstalk.com/reasons-why-its-okay-to-be-single/)
-- [Why is This Newlywed Choosing to Die? ...](https://health.allwomenstalk.com/why-is-this-newly-wed-choosing-to-die/)
-- [7 Reasons Not to Travel That do Not Compute ...](https://travel.allwomenstalk.com/reasons-not-to-travel-that-do-not-compute/)
+- [7 Reasons You Should Learn to Say No to Others ...](https://inspiration.allwomenstalk.com/reasons-you-should-learn-to-say-no-to-others/)
 - [7 Possible Reasons You May Not Have an Early Retir...](https://money.allwomenstalk.com/possible-reasons-you-may-not-have-an-early-retirement/)
-- [11 Reasons Why the Worst Co-Workers Are the Most S...](https://funny.allwomenstalk.com/reasons-why-the-worst-co-workers-are-the-most-successful/)
-- [Should You Ever Ditch a Friend for Good? ...](https://inspiration.allwomenstalk.com/reasons-to-ditch-a-friend-for-good/)
-- [7 Reasons You Won't Enjoy Sharing a House when You...](https://lifestyle.allwomenstalk.com/reasons-you-wont-enjoy-sharing-a-house-when-youre-over-30/)
 - [7 Reasons Why We All Need Alone Time ...](https://lifestyle.allwomenstalk.com/reasons-why-we-all-need-alone-time/)
+- [7 Reasons You Won't Enjoy Sharing a House when You...](https://lifestyle.allwomenstalk.com/reasons-you-wont-enjoy-sharing-a-house-when-youre-over-30/)
+- [Should You Ever Ditch a Friend for Good? ...](https://inspiration.allwomenstalk.com/reasons-to-ditch-a-friend-for-good/)
+- [disadvantages of popping pimples](https://skincare.allwomenstalk.com/majorly-important-reasons-not-to-pop-a-pimple/)
+- [11 Reasons Why the Worst Co-Workers Are the Most S...](https://funny.allwomenstalk.com/reasons-why-the-worst-co-workers-are-the-most-successful/)
+- [7 Reasons Not to Travel That do Not Compute ...](https://travel.allwomenstalk.com/reasons-not-to-travel-that-do-not-compute/)
+- [Why is This Newlywed Choosing to Die? ...](https://health.allwomenstalk.com/why-is-this-newly-wed-choosing-to-die/)
 - [7 Reasons to Stay out of the Sun ...](https://skincare.allwomenstalk.com/reasons-to-stay-out-of-the-sun/)
 - [7 Reasons Children do Not Want to Go to School ...](https://parenting.allwomenstalk.com/7-reasons-children-do-not-want-to-go-to-school/)
 
