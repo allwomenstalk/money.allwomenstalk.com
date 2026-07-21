@@ -3,7 +3,7 @@ title: "7 Ways to Politely Give Friends Financial Advice ..."
 description: "Get Their Permission; Empathize; Don’t Pry Too Deeply; Listen to Their Side of the Story; Watch Their Body Language; More ..."
 url: "https://money.allwomenstalk.com/ways-to-politely-give-friends-financial-advice/"
 category: "money"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Ways to Politely Give Friends Financial Advice ...
@@ -42,16 +42,16 @@ Understandably, it's hard to sit back and watch your friends make unwise financi
 
 ## Related Posts
 
-- [how does a young person get a credit card?](https://money.allwomenstalk.com/reasons-why-youre-too-young-for-a-credit-card/)
+- [collecting money in the workplace](https://money.allwomenstalk.com/hints-for-how-to-avoid-money-collections-at-work/)
+- [why have a student bank account](https://teen.allwomenstalk.com/reasons-why-you-need-to-open-a-student-bank-account/)
 - [how to avoid bad credit](https://money.allwomenstalk.com/dos-and-donts-when-you-have-poor-credit/)
+- [best paying jobs for teens](https://money.allwomenstalk.com/ways-to-make-money-if-youre-too-young-for-a-job/)
+- [maximizing credit card rewards](https://money.allwomenstalk.com/simple-ways-to-maximize-credit-card-rewards/)
+- [how does a young person get a credit card?](https://money.allwomenstalk.com/reasons-why-youre-too-young-for-a-credit-card/)
+- [how to be financially independent in college](https://money.allwomenstalk.com/ways-to-achieve-financial-independence-after-graduating-college/)
+- [what can i buy with credit](https://money.allwomenstalk.com/purchases-you-should-always-make-with-a-credit-card/)
 - [ask to borrow money](https://money.allwomenstalk.com/questions-to-ask-before-lending-your-friends-money/)
 - [freeloading friend](https://money.allwomenstalk.com/best-ways-to-deal-with-a-moocher/)
-- [collecting money in the workplace](https://money.allwomenstalk.com/hints-for-how-to-avoid-money-collections-at-work/)
-- [best paying jobs for teens](https://money.allwomenstalk.com/ways-to-make-money-if-youre-too-young-for-a-job/)
-- [what can i buy with credit](https://money.allwomenstalk.com/purchases-you-should-always-make-with-a-credit-card/)
-- [why have a student bank account](https://teen.allwomenstalk.com/reasons-why-you-need-to-open-a-student-bank-account/)
-- [how to be financially independent in college](https://money.allwomenstalk.com/ways-to-achieve-financial-independence-after-graduating-college/)
-- [maximizing credit card rewards](https://money.allwomenstalk.com/simple-ways-to-maximize-credit-card-rewards/)
 - [7 Steps to Improve Your Finances ...](https://allwomenstalk.com/7-steps-to-improve-your-finances/)
 - [7 Tips for Budgeting Your Finances ...](https://allwomenstalk.com/7-tips-for-budgeting-your-finances/)
 

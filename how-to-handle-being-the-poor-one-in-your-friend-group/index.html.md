@@ -3,7 +3,7 @@ title: "How to Handle Being the Poor One in Your Friend Group ..."
 description: "Don't Pretend You're Wealthier than You Are; Suggest Affordable Outings; You Can't Keep up with Them, so Don't Try; Look for Ways of Keeping the Costs down; Don't Sponge off Them - They're Not Your Parents; More ..."
 url: "https://money.allwomenstalk.com/how-to-handle-being-the-poor-one-in-your-friend-group/"
 category: "money"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # How to Handle Being the Poor One in Your Friend Group ...
@@ -42,14 +42,14 @@ Whether you're the 'poor student' at college or have friends who earn more, be h
 
 ## Related Posts
 
+- [my immature lover drama](https://lifestyle.allwomenstalk.com/how-to-deal-with-immature-friends-for-drama-free-relationships/)
 - [positive attribute](https://inspiration.allwomenstalk.com/how-to-turn-your-jealousy-into-a-positive-thing/)
+- [people that annoy you](https://lifestyle.allwomenstalk.com/how-to-establish-social-boundaries-with-people-who-annoy-you/)
+- [friend lie](https://lifestyle.allwomenstalk.com/how-to-deal-with-your-friend-lying-to-you/)
+- [how can i get rid of jealousy](https://love.allwomenstalk.com/these-tricks-will-get-rid-of-your-jealousy/)
 - [love 911 drama queen](https://inspiration.allwomenstalk.com/ways-to-get-over-your-drama-queen-tendencies-for-good/)
 - [is it normal to have a crush on your professor](https://teen.allwomenstalk.com/how-to-handle-an-embarrassing-crush-on-a-teacher/)
-- [how can i get rid of jealousy](https://love.allwomenstalk.com/these-tricks-will-get-rid-of-your-jealousy/)
-- [my immature lover drama](https://lifestyle.allwomenstalk.com/how-to-deal-with-immature-friends-for-drama-free-relationships/)
-- [people that annoy you](https://lifestyle.allwomenstalk.com/how-to-establish-social-boundaries-with-people-who-annoy-you/)
 - [sometimes all you need are your friends](https://teen.allwomenstalk.com/how-do-you-handle-being-left-out-by-friends/)
-- [friend lie](https://lifestyle.allwomenstalk.com/how-to-deal-with-your-friend-lying-to-you/)
 - [why do i cry in confrontations](https://inspiration.allwomenstalk.com/how-to-handle-confrontation-without-crying/)
 - [it's not you it's me truth](https://love.allwomenstalk.com/when-its-not-you-its-me-is-the-truth/)
 - [How to Be a Good Friend: 7 Ways to Avoid Friendshi...](https://lifestyle.allwomenstalk.com/how-to-be-a-good-friend-7-ways-to-avoid-friendship-failures/)

@@ -3,7 +3,7 @@ title: "7 People Who Were Named as New Billionaires in 2013 ..."
 description: "Domenico Dolce and Stefano Gabbana; Edwin Leong; Tory Burch; Nicola and Paolo Bulgari; Zhou Xiaoguang and Yu Yunxin; More ..."
 url: "https://money.allwomenstalk.com/people-who-were-named-as-new-billionaires-in/"
 category: "money"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 People Who Were Named as New Billionaires in 2013 ...
@@ -58,15 +58,15 @@ What do you think? Do any of these surprise you? Do you have ambitions to be a b
 
 ## Related Posts
 
-- [blonde male actors](https://movies.allwomenstalk.com/top-actors-with-oh-so-kissable-lips/)
-- [famous people tweets](https://celebs.allwomenstalk.com/celebrities-who-are-known-to-tweet-back-their-followers/)
 - [celebrities crop top](https://celebs.allwomenstalk.com/fabulous-celebrities-wearing-crop-tops-and-rocking-it/)
-- [top celebrity endorsements](https://celebs.allwomenstalk.com/of-the-biggest-celebrity-endorsement-deals-of-all-time/)
-- [tabloid celebrities](https://celebs.allwomenstalk.com/of-our-favorite-celebs-that-are-always-in-the-tabloids/)
 - [14 year old actresses female](https://celebs.allwomenstalk.com/celebrities-who-starred-in-commercials-before-they-were-famous/)
 - [celebrities who lost it all to drugs](https://celebs.allwomenstalk.com/celebrities-that-turned-their-life-around-after-using-drugs/)
 - [alexsandra wright son](https://celebs.allwomenstalk.com/surprising-celebrity-men-whove-fathered-a-love-child/)
 - [emily osment plastic surgery](https://celebs.allwomenstalk.com/celebrities-who-look-like-other-celebrities-see-it-to-believe-it/)
+- [tabloid celebrities](https://celebs.allwomenstalk.com/of-our-favorite-celebs-that-are-always-in-the-tabloids/)
+- [top celebrity endorsements](https://celebs.allwomenstalk.com/of-the-biggest-celebrity-endorsement-deals-of-all-time/)
+- [blonde male actors](https://movies.allwomenstalk.com/top-actors-with-oh-so-kissable-lips/)
+- [famous people tweets](https://celebs.allwomenstalk.com/celebrities-who-are-known-to-tweet-back-their-followers/)
 - [celebrity couples who met on set](https://celebs.allwomenstalk.com/super-adorable-celebrity-couples-that-met-on-set/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)

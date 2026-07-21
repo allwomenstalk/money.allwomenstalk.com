@@ -3,7 +3,7 @@ title: "7 Things You Should Never Say to Your Boss ..."
 description: "“I’m so Bored!”; “I’m Overqualified for This Job.”; “I Can’t do It.”; Keep Your Personal Info Personal; Don’t Tell Him or Her Anything about Your Night Life!; More ..."
 url: "https://money.allwomenstalk.com/things-you-should-never-say-to-your-boss/"
 category: "money"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Things You Should Never Say to Your Boss ...
@@ -43,15 +43,15 @@ Sometimes saying the wrong thing to your boss could cost you your promotion or e
 ## Related Posts
 
 - [learning to keep my mouth shut](https://lifestyle.allwomenstalk.com/times-when-you-should-keep-your-mouth-shut/)
+- [why you shouldn't text your ex](https://love.allwomenstalk.com/text-messages-you-should-never-send-to-your-ex/)
+- [should you tell the other woman](https://love.allwomenstalk.com/lies-you-should-stop-telling-yourself-when-you-are-the-other-woman/)
+- [unwanted parenting advice from mother-in-law](https://parenting.allwomenstalk.com/pieces-of-parenting-advice-not-to-give-other-parents/)
 - [dangerous driving habits](https://lifestyle.allwomenstalk.com/dangerous-driving-habits-to-stop-right-now/)
 - [what should be avoided at all cost](https://lifestyle.allwomenstalk.com/supermarket-mistakes-you-should-avoid-at-all-costs/)
-- [why you shouldn't text your ex](https://love.allwomenstalk.com/text-messages-you-should-never-send-to-your-ex/)
-- [unwanted parenting advice from mother-in-law](https://parenting.allwomenstalk.com/pieces-of-parenting-advice-not-to-give-other-parents/)
 - [things you should never say in a job interview](https://lifestyle.allwomenstalk.com/very-important-things-you-should-never-say-at-a-job-interview/)
-- [should you tell the other woman](https://love.allwomenstalk.com/lies-you-should-stop-telling-yourself-when-you-are-the-other-woman/)
-- [flirty compliments for a girl](https://love.allwomenstalk.com/backhanded-compliments-you-should-avoid-when-flirting/)
-- [what not to wear at an interview](https://fashion.allwomenstalk.com/items-of-clothing-to-not-wear-to-an-interview/)
 - [things not to say to your boyfriend](https://love.allwomenstalk.com/things-not-to-say-to-your-boyfriend-unless-you-want-to-drive-him-crazy/)
+- [what not to wear at an interview](https://fashion.allwomenstalk.com/items-of-clothing-to-not-wear-to-an-interview/)
+- [flirty compliments for a girl](https://love.allwomenstalk.com/backhanded-compliments-you-should-avoid-when-flirting/)
 - [10 Things You Should Never Admit to Anyone ...](https://allwomenstalk.com/10-things-you-should-never-admit-to-anyone/)
 - [7 Things You Should Never Tell Your Kids ...](https://allwomenstalk.com/7-things-you-should-never-tell-your-kids/)
 

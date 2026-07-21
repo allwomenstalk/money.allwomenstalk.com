@@ -3,7 +3,7 @@ title: "7 Things That Could Happen if You Don't Teach Your Kids about Money ..."
 description: "They Might Think That Money Grows on Trees; They Won't Understand the Value of a Dollar; They Won't Learn Financial Patience; They Might Not Learn How to save; Sets the Stage for Credit Card Debt; More ..."
 url: "https://money.allwomenstalk.com/things-that-could-happen-if-you-dont-teach-your-kids-about-money/"
 category: "money"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Things That Could Happen if You Don't Teach Your Kids about Money ...
@@ -44,16 +44,16 @@ What financial lessons do you think are important to discuss with kids?
 
 ## Related Posts
 
-- [credit card related questions](https://money.allwomenstalk.com/important-questions-to-ask-when-applying-for-a-credit-card/)
-- [having rich friends](https://money.allwomenstalk.com/things-your-rich-friends-wont-tell-you/)
-- [how to gain knowledge in finance](https://money.allwomenstalk.com/best-ways-to-improve-your-financial-knowledge/)
-- [ways to confess](https://money.allwomenstalk.com/ways-to-confess-money-problems-to-your-partner/)
-- [7 reasons to check your credit report](https://money.allwomenstalk.com/excellent-reasons-to-check-your-credit-today/)
-- [financial advice for new graduates](https://money.allwomenstalk.com/savvy-and-simple-financial-tips-for-new-graduates/)
-- [ways to increase your credit rating](https://money.allwomenstalk.com/ways-to-improve-your-credit-rating/)
 - [personal loan mistakes](https://money.allwomenstalk.com/common-loans-mistakes-you-should-not-make/)
 - [financial moves for stay-at-home parent](https://money.allwomenstalk.com/financial-moves-before-becoming-a-stay-at-home-parent/)
+- [credit card related questions](https://money.allwomenstalk.com/important-questions-to-ask-when-applying-for-a-credit-card/)
+- [having rich friends](https://money.allwomenstalk.com/things-your-rich-friends-wont-tell-you/)
 - [why do i live paycheck to paycheck](https://money.allwomenstalk.com/reasons-why-youll-always-live-paycheck-to-paycheck/)
+- [ways to confess](https://money.allwomenstalk.com/ways-to-confess-money-problems-to-your-partner/)
+- [financial advice for new graduates](https://money.allwomenstalk.com/savvy-and-simple-financial-tips-for-new-graduates/)
+- [ways to increase your credit rating](https://money.allwomenstalk.com/ways-to-improve-your-credit-rating/)
+- [how to gain knowledge in finance](https://money.allwomenstalk.com/best-ways-to-improve-your-financial-knowledge/)
+- [7 reasons to check your credit report](https://money.allwomenstalk.com/excellent-reasons-to-check-your-credit-today/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 - [7 Ways to Teach Kids Responsibility ...](https://parenting.allwomenstalk.com/7-ways-to-teach-kids-responsibility/)
 

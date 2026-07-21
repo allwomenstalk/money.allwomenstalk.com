@@ -3,7 +3,7 @@ title: "7 Interesting Famous People on Banknotes around the World ..."
 description: "UK – Elizabeth Fry; Australia – Andrew Barton Paterson; Mexico – Benito Juárez; The Philippines – Corazon C. Aquino; Turkey – Fatma Aliye Topuz; More ..."
 url: "https://money.allwomenstalk.com/interesting-famous-people-on-banknotes-around-the-world/"
 category: "money"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Interesting Famous People on Banknotes around the World ...
@@ -54,16 +54,16 @@ I have found researching the famous people on banknotes fascinating. The sheer r
 
 ## Related Posts
 
-- [celebrities who lost it all to drugs](https://celebs.allwomenstalk.com/celebrities-that-turned-their-life-around-after-using-drugs/)
-- [alexsandra wright son](https://celebs.allwomenstalk.com/surprising-celebrity-men-whove-fathered-a-love-child/)
-- [14 year old actresses female](https://celebs.allwomenstalk.com/celebrities-who-starred-in-commercials-before-they-were-famous/)
-- [top celebrity endorsements](https://celebs.allwomenstalk.com/of-the-biggest-celebrity-endorsement-deals-of-all-time/)
-- [hans epprecht](https://money.allwomenstalk.com/people-who-were-named-as-new-billionaires-in/)
 - [hollywood actress with best figure](https://movies.allwomenstalk.com/top-actors-with-the-hottest-bodies/)
 - [celebrity makeovers](https://celebs.allwomenstalk.com/amazing-celebrity-makeovers-that-make-great-inspiration/)
 - [celebs who don't age](https://celebs.allwomenstalk.com/spookily-youthful-celebs-who-never-age/)
+- [hans epprecht](https://money.allwomenstalk.com/people-who-were-named-as-new-billionaires-in/)
 - [jason lee child name](https://celebs.allwomenstalk.com/awesome-celebrity-baby-names/)
+- [top celebrity endorsements](https://celebs.allwomenstalk.com/of-the-biggest-celebrity-endorsement-deals-of-all-time/)
+- [celebrities who lost it all to drugs](https://celebs.allwomenstalk.com/celebrities-that-turned-their-life-around-after-using-drugs/)
 - [emily osment plastic surgery](https://celebs.allwomenstalk.com/celebrities-who-look-like-other-celebrities-see-it-to-believe-it/)
+- [14 year old actresses female](https://celebs.allwomenstalk.com/celebrities-who-starred-in-commercials-before-they-were-famous/)
+- [alexsandra wright son](https://celebs.allwomenstalk.com/surprising-celebrity-men-whove-fathered-a-love-child/)
 - [7 Tiny Countries ...](https://travel.allwomenstalk.com/7-tiny-countries/)
 - [9 Foods Named after People ...](https://celebs.allwomenstalk.com/9-foods-named-after-people/)
 
