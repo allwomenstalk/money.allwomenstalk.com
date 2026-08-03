@@ -3,7 +3,7 @@ title: "7 Currencies That Have Disappeared ..."
 description: "The Shekel; Ducat; The Groat; Chinese Jiaozi; The Sudanese Dinar; More ..."
 url: "https://money.allwomenstalk.com/currencies-that-have-disappeared/"
 category: "money"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 7 Currencies That Have Disappeared ...
@@ -42,16 +42,16 @@ Once you start digging into the details of currencies no longer used, it actuall
 
 ## Related Posts
 
-- [prime suspect cancelled](https://movies.allwomenstalk.com/shows-cancelled-before-their-time/)
-- [sitcoms set in nyc](https://movies.allwomenstalk.com/ways-life-in-nyc-is-different-from-tv-shows/)
 - [the 60s tv series](https://movies.allwomenstalk.com/enjoyable-60s-tv-series/)
+- [sitcoms set in nyc](https://movies.allwomenstalk.com/ways-life-in-nyc-is-different-from-tv-shows/)
 - [sad death in movies](https://movies.allwomenstalk.com/sad-tv-deaths-im-still-not-over/)
-- [was tvs best partners](https://movies.allwomenstalk.com/of-the-best-partners-on-tv/)
-- [woody harrelson courtney love](https://movies.allwomenstalk.com/stellar-characters-played-by-woody-harrelson/)
-- [best unexpected kisses](https://movies.allwomenstalk.com/best-tv-show-first-kisses/)
 - [fictional president movies](https://movies.allwomenstalk.com/of-the-best-fictional-presidents/)
+- [woody harrelson courtney love](https://movies.allwomenstalk.com/stellar-characters-played-by-woody-harrelson/)
 - [things like the olive theory](https://movies.allwomenstalk.com/great-how-i-met-your-mother-concepts/)
+- [was tvs best partners](https://movies.allwomenstalk.com/of-the-best-partners-on-tv/)
+- [best unexpected kisses](https://movies.allwomenstalk.com/best-tv-show-first-kisses/)
 - [old.mtv shows](https://movies.allwomenstalk.com/cool-mtv-shows-that-i-love/)
+- [prime suspect cancelled](https://movies.allwomenstalk.com/shows-cancelled-before-their-time/)
 - [7 Cute Coin Purses ...](https://bags.allwomenstalk.com/7-cute-coin-purses/)
 - [7 Fantasy Destinations ...](https://lifestyle.allwomenstalk.com/fantasy-destinations/)
 
