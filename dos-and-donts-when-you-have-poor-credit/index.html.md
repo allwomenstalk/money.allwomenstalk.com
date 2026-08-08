@@ -3,7 +3,7 @@ title: "The Top Dos and Don'ts when You Have Poor Credit ..."
 description: "Don't Apply for New Financing; Don't Make Excuses; Don't Take Advantage of Someone's Good Credit Score; Do Pay Your Bills on Time; Do Pay off Debt; More ..."
 url: "https://money.allwomenstalk.com/dos-and-donts-when-you-have-poor-credit/"
 category: "money"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # The Top Dos and Don'ts when You Have Poor Credit ...
@@ -42,16 +42,16 @@ Bad credit may prevent a loan approval, and it can trigger higher insurance prem
 
 ## Related Posts
 
-- [what can i buy with credit](https://money.allwomenstalk.com/purchases-you-should-always-make-with-a-credit-card/)
-- [where can i get help with money](https://money.allwomenstalk.com/tips-on-asking-for-financial-help/)
-- [signs of a frugal person](https://money.allwomenstalk.com/obvious-signs-youre-becoming-less-frugal-with-your-money/)
-- [why credit matters](https://money.allwomenstalk.com/situations-when-your-credit-matters-the-most/)
-- [cash money & marvelous](https://money.allwomenstalk.com/money-mantras-you-need-to-adopt-in/)
-- [freeloading friend](https://money.allwomenstalk.com/best-ways-to-deal-with-a-moocher/)
-- [once you know how to ____________ money, your mone...](https://money.allwomenstalk.com/ways-to-stop-letting-money-control-your-life/)
-- [maximizing credit card rewards](https://money.allwomenstalk.com/simple-ways-to-maximize-credit-card-rewards/)
 - [freehost valencia](https://money.allwomenstalk.com/lessons-you-learn-while-living-paycheck-to-paycheck/)
+- [maximizing credit card rewards](https://money.allwomenstalk.com/simple-ways-to-maximize-credit-card-rewards/)
+- [freeloading friend](https://money.allwomenstalk.com/best-ways-to-deal-with-a-moocher/)
+- [where can i get help with money](https://money.allwomenstalk.com/tips-on-asking-for-financial-help/)
+- [cash money & marvelous](https://money.allwomenstalk.com/money-mantras-you-need-to-adopt-in/)
+- [signs of a frugal person](https://money.allwomenstalk.com/obvious-signs-youre-becoming-less-frugal-with-your-money/)
 - [collecting money in the workplace](https://money.allwomenstalk.com/hints-for-how-to-avoid-money-collections-at-work/)
+- [once you know how to ____________ money, your mone...](https://money.allwomenstalk.com/ways-to-stop-letting-money-control-your-life/)
+- [what can i buy with credit](https://money.allwomenstalk.com/purchases-you-should-always-make-with-a-credit-card/)
+- [why credit matters](https://money.allwomenstalk.com/situations-when-your-credit-matters-the-most/)
 - [9 Ways to Repair Your Credit Score ...](https://money.allwomenstalk.com/ways-to-repair-your-credit-score/)
 - [7 Reasons to Avoid Credit Problems ...](https://allwomenstalk.com/7-reasons-to-avoid-credit-problems/)
 
