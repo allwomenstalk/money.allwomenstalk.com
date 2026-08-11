@@ -3,7 +3,7 @@ title: "8 Things to do for $5 ..."
 description: "Family Night; Date Night; New Outfit; Get Pampered; Save It; More ..."
 url: "https://money.allwomenstalk.com/things-to-do-for-5/"
 category: "money"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 8 Things to do for $5 ...
@@ -47,16 +47,16 @@ Top Image Source: [fashionmodeldirectory.com](https://www.fashionmodeldirectory.
 
 ## Related Posts
 
-- [stylish laptop dpz](https://lifestyle.allwomenstalk.com/best-websites-to-procrastinate-with/)
-- [theme party for kids](https://lifestyle.allwomenstalk.com/fun-kids-birthday-party-themes/)
-- [things that are spontaneous](https://lifestyle.allwomenstalk.com/fun-spontaneous-things-to-do-as-an-adult/)
-- [things to do when bkred](https://lifestyle.allwomenstalk.com/fun-thing-to-do-with-the-girls/)
 - [ideas first date](https://love.allwomenstalk.com/fun-first-date-ideas/)
-- [green items for kids](https://parenting.allwomenstalk.com/fun-green-activities-to-do-with-the-kids/)
-- [how much does it cost to throw a house party](https://parenting.allwomenstalk.com/ways-to-throw-a-teenage-party-on-a-budget/)
 - [how to make money weekends](https://money.allwomenstalk.com/ways-for-teenagers-to-make-extra-cash-on-the-weekends/)
-- [college coed parties](https://wedding.allwomenstalk.com/fun-ideas-for-a-co-ed-bachelorette-party/)
 - [unique frat party themes](https://lifestyle.allwomenstalk.com/unique-college-party-ideas/)
+- [things that are spontaneous](https://lifestyle.allwomenstalk.com/fun-spontaneous-things-to-do-as-an-adult/)
+- [green items for kids](https://parenting.allwomenstalk.com/fun-green-activities-to-do-with-the-kids/)
+- [things to do when bkred](https://lifestyle.allwomenstalk.com/fun-thing-to-do-with-the-girls/)
+- [stylish laptop dpz](https://lifestyle.allwomenstalk.com/best-websites-to-procrastinate-with/)
+- [how much does it cost to throw a house party](https://parenting.allwomenstalk.com/ways-to-throw-a-teenage-party-on-a-budget/)
+- [college coed parties](https://wedding.allwomenstalk.com/fun-ideas-for-a-co-ed-bachelorette-party/)
+- [theme party for kids](https://lifestyle.allwomenstalk.com/fun-kids-birthday-party-themes/)
 - [10 Ways to Spend $1 around the World ...](https://travel.allwomenstalk.com/ways-to-spend-1-around-the-world/)
 - [10 Easy Ways to save up to $500 This Month ...](https://allwomenstalk.com/10-easy-ways-to-save-up-to-500-this-month/)
 

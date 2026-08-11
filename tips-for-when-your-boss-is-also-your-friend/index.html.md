@@ -3,7 +3,7 @@ title: "7 Tips for when Your Boss is Also Your Friend ..."
 description: "Stay Professional; Keep Work & Friendship Separate; No Special Treatment; Constructive Criticism; Respect Their Position; More ..."
 url: "https://money.allwomenstalk.com/tips-for-when-your-boss-is-also-your-friend/"
 category: "money"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Tips for when Your Boss is Also Your Friend ...
@@ -42,14 +42,14 @@ Working with a friend who's your boss can be tricky, especially if they're promo
 
 ## Related Posts
 
-- [what to say to a lady](https://lifestyle.allwomenstalk.com/heres-how-to-say-no-like-a-lady/)
-- [how to positively deal with a show off person](https://inspiration.allwomenstalk.com/show-off-friends-how-to-deal-with-one-upmanship/)
+- [clash steps](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-personality-clash/)
+- [what if partner doesn't like engagement ring?](https://jewelry.allwomenstalk.com/how-to-deal-with-receiving-an-engagement-ring-you-hate/)
 - [admitting you were wrong](https://inspiration.allwomenstalk.com/unbelievable-places-of-interest-in-ukraine/)
 - [inattentive vs unattentive](https://love.allwomenstalk.com/ways-to-deal-with-an-inattentive-boyfriend/)
 - [what to do when caught in a lie](https://inspiration.allwomenstalk.com/little-white-lies-add-up-heres-what-to-do-when-you-get-caught-fibbing/)
-- [what if partner doesn't like engagement ring?](https://jewelry.allwomenstalk.com/how-to-deal-with-receiving-an-engagement-ring-you-hate/)
 - [how to legally get revenge on someone](https://funny.allwomenstalk.com/dont-get-mad-get-even-how-to-get-revenge-without-hurting-anyone/)
-- [clash steps](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-personality-clash/)
+- [how to positively deal with a show off person](https://inspiration.allwomenstalk.com/show-off-friends-how-to-deal-with-one-upmanship/)
+- [what to say to a lady](https://lifestyle.allwomenstalk.com/heres-how-to-say-no-like-a-lady/)
 - [don't embarrass yourself](https://inspiration.allwomenstalk.com/how-can-you-avoid-embarrassing-yourself-in-public/)
 - [how to deal with family bullies](https://inspiration.allwomenstalk.com/all-star-celebrity-tips-for-dealing-with-bullies/)
 - [7 Ways to Say No to Your Boss ...](https://lifestyle.allwomenstalk.com/ways-to-say-no-to-your-boss/)
