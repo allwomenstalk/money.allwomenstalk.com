@@ -3,7 +3,7 @@ title: "7 Interesting Famous People on Banknotes around the World ..."
 description: "UK – Elizabeth Fry; Australia – Andrew Barton Paterson; Mexico – Benito Juárez; The Philippines – Corazon C. Aquino; Turkey – Fatma Aliye Topuz; More ..."
 url: "https://money.allwomenstalk.com/interesting-famous-people-on-banknotes-around-the-world/"
 category: "money"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 7 Interesting Famous People on Banknotes around the World ...
@@ -55,15 +55,15 @@ I have found researching the famous people on banknotes fascinating. The sheer r
 ## Related Posts
 
 - [jason lee child name](https://celebs.allwomenstalk.com/awesome-celebrity-baby-names/)
+- [hans epprecht](https://money.allwomenstalk.com/people-who-were-named-as-new-billionaires-in/)
+- [alexsandra wright son](https://celebs.allwomenstalk.com/surprising-celebrity-men-whove-fathered-a-love-child/)
+- [emily osment plastic surgery](https://celebs.allwomenstalk.com/celebrities-who-look-like-other-celebrities-see-it-to-believe-it/)
+- [celebs who don't age](https://celebs.allwomenstalk.com/spookily-youthful-celebs-who-never-age/)
+- [celebrity makeovers](https://celebs.allwomenstalk.com/amazing-celebrity-makeovers-that-make-great-inspiration/)
+- [celebrities who lost it all to drugs](https://celebs.allwomenstalk.com/celebrities-that-turned-their-life-around-after-using-drugs/)
+- [14 year old actresses female](https://celebs.allwomenstalk.com/celebrities-who-starred-in-commercials-before-they-were-famous/)
 - [top celebrity endorsements](https://celebs.allwomenstalk.com/of-the-biggest-celebrity-endorsement-deals-of-all-time/)
 - [hollywood actress with best figure](https://movies.allwomenstalk.com/top-actors-with-the-hottest-bodies/)
-- [celebrity makeovers](https://celebs.allwomenstalk.com/amazing-celebrity-makeovers-that-make-great-inspiration/)
-- [14 year old actresses female](https://celebs.allwomenstalk.com/celebrities-who-starred-in-commercials-before-they-were-famous/)
-- [celebrities who lost it all to drugs](https://celebs.allwomenstalk.com/celebrities-that-turned-their-life-around-after-using-drugs/)
-- [alexsandra wright son](https://celebs.allwomenstalk.com/surprising-celebrity-men-whove-fathered-a-love-child/)
-- [celebs who don't age](https://celebs.allwomenstalk.com/spookily-youthful-celebs-who-never-age/)
-- [hans epprecht](https://money.allwomenstalk.com/people-who-were-named-as-new-billionaires-in/)
-- [emily osment plastic surgery](https://celebs.allwomenstalk.com/celebrities-who-look-like-other-celebrities-see-it-to-believe-it/)
 - [7 Tiny Countries ...](https://travel.allwomenstalk.com/7-tiny-countries/)
 - [9 Foods Named after People ...](https://celebs.allwomenstalk.com/9-foods-named-after-people/)
 

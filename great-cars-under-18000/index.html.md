@@ -3,7 +3,7 @@ title: "8 Great Cars under $18,000 ..."
 description: "Ford Fiesta; Honda Fit; Honda Civic; The Elantra Touring; Kia Soul; More ..."
 url: "https://money.allwomenstalk.com/great-cars-under-18000/"
 category: "money"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 8 Great Cars under $18,000 ...
@@ -50,16 +50,16 @@ Top Photo Credit: [#1imagesource](https://www.flickr.com/photos/barbstephens/391
 
 ## Related Posts
 
-- [bumper stickers for bad drivers](https://lifestyle.allwomenstalk.com/car-bumper-stickers-i-wish-i-had/)
 - [refillable powder compact with mirror](https://makeup.allwomenstalk.com/stylish-compacts/)
-- [Giveaway Contest Winner: the Spotted Olive Station...](https://lifestyle.allwomenstalk.com/giveaway-contest-winner-the-spotted-olive-stationery-set/)
-- [docking stations for ipods](https://lifestyle.allwomenstalk.com/fun-ipod-docks/)
 - [7 Great 2 in 1 Products to Try ...](https://beauty.allwomenstalk.com/great-in-1-products-to-try/)
-- [sport wind](https://lifestyle.allwomenstalk.com/wind-powered-sports/)
+- [Giveaway Contest Winner: the Spotted Olive Station...](https://lifestyle.allwomenstalk.com/giveaway-contest-winner-the-spotted-olive-stationery-set/)
 - [Getting to Know ETSY Shop: Vint Design ...](https://lifestyle.allwomenstalk.com/getting-to-know-etsy-shop-vint-design/)
 - [what i bought today](https://lifestyle.allwomenstalk.com/things-i-bought-today/)
-- [nordstrom coasters](https://lifestyle.allwomenstalk.com/eye-catching-coasters/)
 - [marc jacobs laptop sleeve](https://lifestyle.allwomenstalk.com/nifty-neoprene-laptop-cases/)
+- [bumper stickers for bad drivers](https://lifestyle.allwomenstalk.com/car-bumper-stickers-i-wish-i-had/)
+- [docking stations for ipods](https://lifestyle.allwomenstalk.com/fun-ipod-docks/)
+- [nordstrom coasters](https://lifestyle.allwomenstalk.com/eye-catching-coasters/)
+- [sport wind](https://lifestyle.allwomenstalk.com/wind-powered-sports/)
 - [8 Colourful Wallets ...](https://bags.allwomenstalk.com/colourful-wallets/)
 - [8 Gorgeous Garden Goods ...](https://gardening.allwomenstalk.com/8-gorgeous-garden-goods/)
 

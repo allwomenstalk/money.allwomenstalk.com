@@ -3,7 +3,7 @@ title: "7 Obvious Signs That You're Dating a Cheapskate ..."
 description: "You're Paying for Everything; You're Going Dutch -- All the Time; He Uses a Coupon on the First Date; He Won't Pay for Parking; He Doesn't Tip; More ..."
 url: "https://money.allwomenstalk.com/obvious-signs-that-youre-dating-a-cheapskate/"
 category: "money"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 7 Obvious Signs That You're Dating a Cheapskate ...
@@ -42,16 +42,16 @@ Realizing that you're dating a cheapskate isn't necessarily a deal breaker. Howe
 
 ## Related Posts
 
-- [how to tell when a man likes you](https://love.allwomenstalk.com/signs-he-likes-you-for-more-than-your-body/)
-- [bff forever pics](https://inspiration.allwomenstalk.com/signs-youll-be-best-friends-forever/)
-- [infatuated synonym](https://love.allwomenstalk.com/signs-that-hes-fatally-attracted-to-you/)
 - [will i ever find someone better than my ex](https://love.allwomenstalk.com/signs-you-deserve-someone-better-than-your-ex/)
-- [is he thinking about marriage](https://love.allwomenstalk.com/telling-signs-hes-got-marriage-on-his-mind/)
-- [how to know he's the one to marry](https://love.allwomenstalk.com/signs-hes-the-one-youre-meant-to-marry/)
-- [signs of jealousy on facebook](https://lifestyle.allwomenstalk.com/signs-your-friend-is-jealous-of-you/)
-- [taking things personally](https://love.allwomenstalk.com/signs-you-may-be-taking-things-too-personally-in-your-relationship/)
 - [is he my best friend](https://love.allwomenstalk.com/clear-signs-your-boyfriend-is-also-your-best-friend/)
+- [signs of jealousy on facebook](https://lifestyle.allwomenstalk.com/signs-your-friend-is-jealous-of-you/)
+- [how to tell when a man likes you](https://love.allwomenstalk.com/signs-he-likes-you-for-more-than-your-body/)
+- [taking things personally](https://love.allwomenstalk.com/signs-you-may-be-taking-things-too-personally-in-your-relationship/)
 - [dating someone with no goals](https://love.allwomenstalk.com/signs-youre-dating-an-immature-guy/)
+- [how to know he's the one to marry](https://love.allwomenstalk.com/signs-hes-the-one-youre-meant-to-marry/)
+- [infatuated synonym](https://love.allwomenstalk.com/signs-that-hes-fatally-attracted-to-you/)
+- [is he thinking about marriage](https://love.allwomenstalk.com/telling-signs-hes-got-marriage-on-his-mind/)
+- [bff forever pics](https://inspiration.allwomenstalk.com/signs-youll-be-best-friends-forever/)
 - [7 Signs Your Spouse is Cheating ...](https://allwomenstalk.com/7-signs-your-spouse-is-cheating/)
 - [19 Signs You're Dating a Loser ...](https://allwomenstalk.com/10-signs-youre-dating-a-loser/)
 
