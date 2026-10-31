@@ -1,18 +1,18 @@
 ---
 title: "7 Bad Money Moves to Avoid on a First Date"
-description: "Going Dutch; Using a Coupon; Bragging about Your Income; Don't Ask about Your Date's Income; Don't Ask about Your Date's Credit; More ..."
+description: "Leaving the Bill Unspoken; Using a Coupon; Bragging about Your Income; Don't Ask about Your Date's Income; Don't Ask about Your Date's Credit; More ..."
 url: "https://money.allwomenstalk.com/bad-money-moves-to-avoid-on-a-first-date/"
 category: "money"
-last_updated: "2026-10-22"
+last_updated: "2026-10-31"
 ---
 
 # 7 Bad Money Moves to Avoid on a First Date
 
 There are several bad money moves to make on the first date, and if you want to guarantee a second date, you need to avoid these. First dates can be awkward, and if you don't know the person well, it can be difficult to hold a continuous conversation. But oftentimes, you can recover from first-date awkwardness as long as you steer clear of key financial missteps.
 
-## 1. Going Dutch
+## 1. Leaving the Bill Unspoken
 
-Asking your date to go Dutch is one of several bad money moves. Whether you're a guy or girl, it's customary for the person doing the asking to pay for the date. Therefore, you need to choose a location that's within your budget. It might be an inexpensive restaurant, free events in the city, or a matinee movie. If you want to keep costs low without looking cheap, plan ahead so you don't end up [overspending to impress](#6).
+The person who invited the other can offer to pay, or both dates can split the bill. Neither choice is rude when discussed kindly. Choose a location within your budget, and avoid putting pressure on yourself or your date to spend more than planned. Our [guide to who pays on a first date](https://love.allwomenstalk.com/who-pays-on-the-first-date/) has simple scripts for the check. Planning ahead also helps you avoid [overspending to impress](#6).
 
 Here are a few budget-friendly first date ideas that feel intentional rather than cheap:
 
@@ -38,7 +38,7 @@ I think it's important for couples to discuss credit as a relationship progresse
 
 | Topic | Appropriate Time | Why Wait? |
 | --- | --- | --- |
-| Who pays for the date | 1st Date | Avoid awkwardness by having the initiator cover it |
+| Who pays for the date | 1st Date | Agree whether the inviter treats or you split the bill |
 | Income & Salary | After 1-2 Months | Avoid sounding intrusive or transactional |
 | Credit Score & Debt | Serious Relationship | Requires mutual trust and long-term commitment |
 
@@ -48,7 +48,7 @@ Understandably, you want to impress your date. You might pick an expensive resta
 
 ## 7. Asking for Something
 
-This is an absolutely no-no on the first date. If your date buys dinner and takes you to a movie, that's great. However, this isn't the time or place to ask for anything extra. For example, let's say you're walking through the mall until a movie starts. Don't ask your date to buy you something. If he offers, okay - but don't ask. You'll put him in an awkward position and this might shape his opinion of you. Remember that avoiding [going Dutch](#1) or asking for gifts keeps expectations balanced and respectful.
+This is an absolutely no-no on the first date. If your date buys dinner and takes you to a movie, that's great. However, this isn't the time or place to ask for anything extra. For example, let's say you're walking through the mall until a movie starts. Don't ask your date to buy you something. If he offers, okay - but don't ask. You'll put him in an awkward position and this might shape his opinion of you. Remember that paying for a date never entitles anyone to gifts or physical affection.
 
 First dates can be intimidating and awkward. But there are ways to have a fantastic evening, which practically guarantees a second date. Avoid these financial blunders, stay genuine, and enjoy getting to know each other. What other money topics should be avoided on a first date?
 
@@ -56,14 +56,14 @@ First dates can be intimidating and awkward. But there are ways to have a fantas
 
 - [7 Grammar Mistakes You Should Never Make Again ...](https://lifestyle.allwomenstalk.com/grammar-mistakes-you-should-never-make-again/)
 - [a bad driving habit you should avoid is:](https://travel.allwomenstalk.com/bad-driving-habits-you-should-avoid/)
-- [7 things you should never do with aluminum foil](https://lifestyle.allwomenstalk.com/things-you-should-never-throw-away/)
-- [7 Things Grateful People Don't do ...](https://inspiration.allwomenstalk.com/things-grateful-people-dont-do/)
 - [25 Things to Dump before You Turn 30 ...](https://lifestyle.allwomenstalk.com/things-to-dump-before-you-turn-30/)
-- [7 Times when You Should Avoid Alcohol ...](https://health.allwomenstalk.com/times-when-you-should-avoid-alcohol/)
 - [7 Things Your Boyfriend Should Never Make You do f...](https://love.allwomenstalk.com/things-your-boyfriend-should-never-make-you-do-for-him/)
-- [7 Pieces of Dating Advice to Ignore Totally ...](https://love.allwomenstalk.com/pieces-of-dating-advice-to-ignore-totally/)
-- [7 Unhealthy People You Need to Delete from Your Li...](https://inspiration.allwomenstalk.com/unhealthy-people-you-need-to-delete-from-your-life/)
+- [7 Times when You Should Avoid Alcohol ...](https://health.allwomenstalk.com/times-when-you-should-avoid-alcohol/)
 - [Avoid These Questions at All Costs during Your Job...](https://money.allwomenstalk.com/questions-to-avoid-during-a-job-interview/)
+- [7 Unhealthy People You Need to Delete from Your Li...](https://inspiration.allwomenstalk.com/unhealthy-people-you-need-to-delete-from-your-life/)
+- [7 Things Grateful People Don't do ...](https://inspiration.allwomenstalk.com/things-grateful-people-dont-do/)
+- [7 Pieces of Dating Advice to Ignore Totally ...](https://love.allwomenstalk.com/pieces-of-dating-advice-to-ignore-totally/)
+- [7 things you should never do with aluminum foil](https://lifestyle.allwomenstalk.com/things-you-should-never-throw-away/)
 - [8 Undeniably Obvious First Date Don'ts ...](https://love.allwomenstalk.com/undeniably-obvious-first-date-donts/)
 - [7 Ways to Turn down a Date ...](https://love.allwomenstalk.com/ways-to-turn-down-a-date/)
 
