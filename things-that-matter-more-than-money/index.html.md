@@ -1,9 +1,9 @@
 ---
 title: "9 Things That Matter More than Money ..."
-description: "Family; Friends; Health; Children; Freedom; More ..."
+description: "Family; Friends; Health; Children; Freedom"
 url: "https://money.allwomenstalk.com/things-that-matter-more-than-money/"
 category: "money"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 9 Things That Matter More than Money ...
@@ -51,15 +51,15 @@ Having an extra dollar or two in your pocket never hurt anyone’s feelings, but
 ## Related Posts
 
 - [navigating your 20s](https://lifestyle.allwomenstalk.com/things-to-know-about-your-20s/)
-- [kohlbergs stages of moral development](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-kohlbergs-stages-of-moral-development/)
 - [the final stage of grief is typically remorse](https://lifestyle.allwomenstalk.com/typical-stages-of-grieving-for-you-to-know-about/)
-- [what kind of lesson can we learn from mother earth](https://inspiration.allwomenstalk.com/things-mother-nature-can-teach-us/)
-- [qualities to become a model](https://teen.allwomenstalk.com/characteristics-to-look-for-in-a-role-model/)
 - [what to do when embarrassed at school](https://teen.allwomenstalk.com/things-we-all-do-in-class-that-you-shouldnt-feel-embarrassed-about/)
-- [happy things to think about](https://inspiration.allwomenstalk.com/things-you-think-will-make-you-happy-but-wont/)
+- [what kind of lesson can we learn from mother earth](https://inspiration.allwomenstalk.com/things-mother-nature-can-teach-us/)
 - [what you think is what you say what you say is wha...](https://inspiration.allwomenstalk.com/tips-for-how-to-stop-saying-everything-you-think/)
-- [things that you can't control](https://lifestyle.allwomenstalk.com/things-that-control-our-lives-on-a-daily-basis/)
+- [happy things to think about](https://inspiration.allwomenstalk.com/things-you-think-will-make-you-happy-but-wont/)
+- [qualities to become a model](https://teen.allwomenstalk.com/characteristics-to-look-for-in-a-role-model/)
+- [kohlbergs stages of moral development](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-kohlbergs-stages-of-moral-development/)
 - [how do you know if you have a true friend](https://teen.allwomenstalk.com/situations-that-reveal-who-your-true-friends-are/)
+- [things that you can't control](https://lifestyle.allwomenstalk.com/things-that-control-our-lives-on-a-daily-basis/)
 - [What Really Matters ...](https://allwomenstalk.com/what-really-matters/)
 - [9 Things We Cannot Live without ...](https://allwomenstalk.com/9-things-we-cannot-live-without/)
 

@@ -1,9 +1,9 @@
 ---
 title: "7 Common Mental Barriers to Paying off Debt ..."
-description: "Everyone Has Debt; I’ll Never Pay down Balances; It’s Okay to Just Pay the Minimum; I Have to Keep up with Others; I Don't Need Help; More ..."
+description: "Everyone Has Debt; I’ll Never Pay down Balances; It’s Okay to Just Pay the Minimum; I Have to Keep up with Others; I Don't Need Help"
 url: "https://money.allwomenstalk.com/common-mental-barriers-to-paying-off-debt/"
 category: "money"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Common Mental Barriers to Paying off Debt ...
@@ -42,16 +42,16 @@ So, are you ready to win the war against debt? Just remember: debt is a choice a
 
 ## Related Posts
 
-- [dealing with student loan debt](https://money.allwomenstalk.com/strategies-for-dealing-with-student-loan-debt/)
-- [why do i live paycheck to paycheck](https://money.allwomenstalk.com/reasons-why-youll-always-live-paycheck-to-paycheck/)
-- [don't teach your child to be rich](https://money.allwomenstalk.com/things-that-could-happen-if-you-dont-teach-your-kids-about-money/)
-- [credit card related questions](https://money.allwomenstalk.com/important-questions-to-ask-when-applying-for-a-credit-card/)
+- [having rich friends](https://money.allwomenstalk.com/things-your-rich-friends-wont-tell-you/)
 - [how to gain knowledge in finance](https://money.allwomenstalk.com/best-ways-to-improve-your-financial-knowledge/)
-- [financial advice for new graduates](https://money.allwomenstalk.com/savvy-and-simple-financial-tips-for-new-graduates/)
 - [ways to confess](https://money.allwomenstalk.com/ways-to-confess-money-problems-to-your-partner/)
 - [debt myths](https://money.allwomenstalk.com/money-myths-that-keep-you-in-debt/)
-- [having rich friends](https://money.allwomenstalk.com/things-your-rich-friends-wont-tell-you/)
 - [financial moves for stay-at-home parent](https://money.allwomenstalk.com/financial-moves-before-becoming-a-stay-at-home-parent/)
+- [financial advice for new graduates](https://money.allwomenstalk.com/savvy-and-simple-financial-tips-for-new-graduates/)
+- [why do i live paycheck to paycheck](https://money.allwomenstalk.com/reasons-why-youll-always-live-paycheck-to-paycheck/)
+- [dealing with student loan debt](https://money.allwomenstalk.com/strategies-for-dealing-with-student-loan-debt/)
+- [credit card related questions](https://money.allwomenstalk.com/important-questions-to-ask-when-applying-for-a-credit-card/)
+- [don't teach your child to be rich](https://money.allwomenstalk.com/things-that-could-happen-if-you-dont-teach-your-kids-about-money/)
 - [7 Best Ways to Get out of Debt ...](https://money.allwomenstalk.com/best-ways-to-get-out-of-debt/)
 - [7 Tips to Pay off Student Loans ...](https://money.allwomenstalk.com/tips-to-pay-off-student-loans/)
 

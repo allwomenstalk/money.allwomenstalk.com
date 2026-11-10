@@ -1,9 +1,9 @@
 ---
 title: "7 Tips for Dealing with an over-friendly Boss ..."
-description: "Listen More than You Talk; Be Professional; Stay Busy; Treat Them like a Boss; Ignore It; More ..."
+description: "Listen More than You Talk; Be Professional; Stay Busy; Treat Them like a Boss; Ignore It"
 url: "https://money.allwomenstalk.com/tips-on-dealing-with-an-over-friendly-boss/"
 category: "money"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Tips for Dealing with an over\-friendly Boss ...
@@ -42,15 +42,15 @@ Now it’s your turn to share. Have you dealt with a boss that’s overly friend
 
 ## Related Posts
 
-- [how to respond bullying](https://inspiration.allwomenstalk.com/ways-to-respond-to-online-bullying/)
-- [how to steal the spotlight](https://inspiration.allwomenstalk.com/easy-ways-to-avoid-stealing-your-friends-spotlight/)
-- [clash steps](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-personality-clash/)
-- [remove toxic people](https://inspiration.allwomenstalk.com/tips-and-reasons-to-remove-the-toxic-people-from-your-life/)
-- [how to deal with awkward situations](https://inspiration.allwomenstalk.com/classy-ways-to-handle-awkward-situations-like-a-lady/)
 - [how to be friends with your boss](https://money.allwomenstalk.com/tips-for-when-your-boss-is-also-your-friend/)
-- [hypocrite meaning](https://inspiration.allwomenstalk.com/easy-ways-to-stop-being-a-hypocrite/)
 - [admitting you were wrong](https://inspiration.allwomenstalk.com/unbelievable-places-of-interest-in-ukraine/)
 - [being walked all over](https://inspiration.allwomenstalk.com/ways-to-stop-getting-walked-over/)
+- [clash steps](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-personality-clash/)
+- [hypocrite meaning](https://inspiration.allwomenstalk.com/easy-ways-to-stop-being-a-hypocrite/)
+- [how to deal with awkward situations](https://inspiration.allwomenstalk.com/classy-ways-to-handle-awkward-situations-like-a-lady/)
+- [how to respond bullying](https://inspiration.allwomenstalk.com/ways-to-respond-to-online-bullying/)
+- [how to steal the spotlight](https://inspiration.allwomenstalk.com/easy-ways-to-avoid-stealing-your-friends-spotlight/)
+- [remove toxic people](https://inspiration.allwomenstalk.com/tips-and-reasons-to-remove-the-toxic-people-from-your-life/)
 - [what to do with someone who complains all the time](https://lifestyle.allwomenstalk.com/ways-to-deal-with-someone-whos-always-complaining/)
 - [7 Ways to Say No to Your Boss ...](https://lifestyle.allwomenstalk.com/ways-to-say-no-to-your-boss/)
 - [7 Tips on How to Deal with Your Boss like a Pro .....](https://lifestyle.allwomenstalk.com/tips-on-how-to-deal-with-your-boss-like-a-pro/)

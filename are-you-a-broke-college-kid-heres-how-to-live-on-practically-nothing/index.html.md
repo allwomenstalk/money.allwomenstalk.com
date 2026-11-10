@@ -1,9 +1,9 @@
 ---
 title: "Are You a Broke College Kid? Here's How to Live on Practically Nothing ..."
-description: "Check Your City's Entertainment Guide; Skip the Expensive Cell Phone Plan; Use Public Transportation; Don't Get a Credit Card; The More Roommates, the Better; More ..."
+description: "Check Your City's Entertainment Guide; Skip the Expensive Cell Phone Plan; Use Public Transportation; Don't Get a Credit Card"
 url: "https://money.allwomenstalk.com/are-you-a-broke-college-kid-heres-how-to-live-on-practically-nothing/"
 category: "money"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Are You a Broke College Kid? Here's How to Live on Practically Nothing ...
@@ -42,16 +42,16 @@ Living on practically nothing can be difficult, but it's doable. Instead of bein
 
 ## Related Posts
 
+- [Shopping Habits: What Kind of Spender Are You?](https://money.allwomenstalk.com/shopping-habits-what-kind-of-spender-are-you/)
+- [how to throw a great summer bbq on a budget](https://money.allwomenstalk.com/heres-how-to-hold-a-killer-bbq-on-a-budget/)
 - [Dating Doesn't Have to Cost You - Tips on Going ou...](https://money.allwomenstalk.com/dating-doesnt-have-to-cost-you-tips-on-going-out-without-wasting-money/)
-- [7 Savvy Hacks for Girls Who Want to Start Saving $...](https://money.allwomenstalk.com/how-can-you-save-50-every-month/)
-- [7 Ways to See Great Theater without Paying a Fortu...](https://money.allwomenstalk.com/ways-to-see-great-theater-without-paying-a-fortune/)
+- [Money-saving Hacks That'll Work at Any Age ...](https://money.allwomenstalk.com/money-saving-hacks-thatll-work-at-any-age/)
 - [Frugal Fun: Picnics for Pennies ...](https://food.allwomenstalk.com/frugal-fun-picnics-for-pennies/)
+- [7 Savvy Hacks for Girls Who Want to Start Saving $...](https://money.allwomenstalk.com/how-can-you-save-50-every-month/)
+- [How to Look Expensive when You Have Hardly Any Dou...](https://fashion.allwomenstalk.com/how-to-look-expensive-when-you-have-hardly-any-dough/)
 - [Here's How to Have Fun Going out without Wasting A...](https://money.allwomenstalk.com/heres-how-to-have-fun-going-out-without-wasting-all-your-money/)
 - [heavenly holidays](https://travel.allwomenstalk.com/preserve-your-pennies-tips-for-heavenly-holidays-on-a-budget/)
-- [Money-saving Hacks That'll Work at Any Age ...](https://money.allwomenstalk.com/money-saving-hacks-thatll-work-at-any-age/)
-- [How to Look Expensive when You Have Hardly Any Dou...](https://fashion.allwomenstalk.com/how-to-look-expensive-when-you-have-hardly-any-dough/)
-- [how to throw a great summer bbq on a budget](https://money.allwomenstalk.com/heres-how-to-hold-a-killer-bbq-on-a-budget/)
-- [Shopping Habits: What Kind of Spender Are You?](https://money.allwomenstalk.com/shopping-habits-what-kind-of-spender-are-you/)
+- [7 Ways to See Great Theater without Paying a Fortu...](https://money.allwomenstalk.com/ways-to-see-great-theater-without-paying-a-fortune/)
 - [8 Great Ways to save Money as a College Student .....](https://allwomenstalk.com/ways-to-save-money-as-a-student/)
 - [10 Ways to save Money for College ...](https://allwomenstalk.com/10-ways-to-save-money-for-college/)
 

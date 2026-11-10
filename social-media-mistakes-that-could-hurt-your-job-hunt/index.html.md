@@ -1,9 +1,9 @@
 ---
 title: "7 Social Media Mistakes That Could Hurt Your Job Hunt ..."
-description: "Complaining about Your Job or Boss; Posting Tasteless Comments; Mocking Your Customers; Sharing Your Latest Job Offer; Posting Nudity; More ..."
+description: "Complaining about Your Job or Boss; Posting Tasteless Comments; Mocking Your Customers; Sharing Your Latest Job Offer; Posting Nudity"
 url: "https://money.allwomenstalk.com/social-media-mistakes-that-could-hurt-your-job-hunt/"
 category: "money"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Social Media Mistakes That Could Hurt Your Job Hunt ...
@@ -49,16 +49,16 @@ Sources:
 
 ## Related Posts
 
-- [How to Protect Your Heart if You Have a Job That R...](https://health.allwomenstalk.com/how-to-protect-your-heart-if-you-have-a-job-that-requires-a-lot-of-sitting/)
-- [17 Interview Infographics to Help You Land Your Dr...](https://money.allwomenstalk.com/interview-infographics-to-help-you-land-your-dream-job/)
-- [This is What You Should Wear to an Interview ...](https://money.allwomenstalk.com/this-is-what-you-should-wear-to-an-interview/)
-- [Factors to Consider for People Who Are Not Sure if...](https://money.allwomenstalk.com/do-you-really-need-a-job/)
-- [How to Create a Visually Impressive Resume for Gir...](https://money.allwomenstalk.com/how-to-create-a-visually-impressive-resume/)
-- [how to market yourself for a job on linkedin](https://money.allwomenstalk.com/how-to-market-yourself-on-linkedin/)
 - [7 Ways Working Abroad Boosts Your Career ...](https://money.allwomenstalk.com/ways-working-abroad-boosts-your-career/)
-- [Easy Ways to Get Ahead at Work ...](https://money.allwomenstalk.com/easy-ways-to-get-ahead-at-work/)
-- [top companies on linkedin](https://money.allwomenstalk.com/the-top-companies-to-work-for-according-to-linkedin/)
+- [How to Create a Visually Impressive Resume for Gir...](https://money.allwomenstalk.com/how-to-create-a-visually-impressive-resume/)
 - [This is How to Get a Better Work Life Balance ...](https://inspiration.allwomenstalk.com/this-is-how-to-get-a-better-work-life-balance/)
+- [Easy Ways to Get Ahead at Work ...](https://money.allwomenstalk.com/easy-ways-to-get-ahead-at-work/)
+- [17 Interview Infographics to Help You Land Your Dr...](https://money.allwomenstalk.com/interview-infographics-to-help-you-land-your-dream-job/)
+- [How to Protect Your Heart if You Have a Job That R...](https://health.allwomenstalk.com/how-to-protect-your-heart-if-you-have-a-job-that-requires-a-lot-of-sitting/)
+- [This is What You Should Wear to an Interview ...](https://money.allwomenstalk.com/this-is-what-you-should-wear-to-an-interview/)
+- [top companies on linkedin](https://money.allwomenstalk.com/the-top-companies-to-work-for-according-to-linkedin/)
+- [how to market yourself for a job on linkedin](https://money.allwomenstalk.com/how-to-market-yourself-on-linkedin/)
+- [Factors to Consider for People Who Are Not Sure if...](https://money.allwomenstalk.com/do-you-really-need-a-job/)
 - [7 Worst Interview Mistakes ...](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
 - [10 Top Tips for Online Job Search ...](https://lifestyle.allwomenstalk.com/top-tips-for-online-job-search/)
 

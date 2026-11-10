@@ -1,9 +1,9 @@
 ---
 title: "5 Nightmare Jobs Someone Has to do ..."
-description: "Animal Sperm Collector; Sewer Unblocker; Knife Thrower’s Assistant; Fluffer on the Set of an Adult Movie; PR for Bashar Al-Assad; More ..."
+description: "Animal Sperm Collector; Sewer Unblocker; Knife Thrower’s Assistant; Fluffer on the Set of an Adult Movie; PR for Bashar Al-Assad"
 url: "https://money.allwomenstalk.com/nightmare-jobs-someone-has-to-do/"
 category: "money"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 5 Nightmare Jobs Someone Has to do ...
@@ -37,15 +37,15 @@ So there you have it – 5 nightmare jobs that will make you grateful for the fi
 ## Related Posts
 
 - [it's boiling outside](https://fashion.allwomenstalk.com/how-to-look-professional-when-its-boiling-outside/)
-- [ehow make money](https://money.allwomenstalk.com/how-to-make-money-online-using-ehow/)
 - [list of careers in fashion](https://fashion.allwomenstalk.com/fashion-careers-other-than-modeling/)
+- [elle woods graduation cap](https://money.allwomenstalk.com/what-your-college-degree-means-to-an-employer/)
 - [career rut](https://money.allwomenstalk.com/brilliant-ways-to-break-out-of-a-career-rut/)
 - [How to Turn Your Hobby into an Extraordinary Busin...](https://money.allwomenstalk.com/how-to-turn-your-hobby-into-an-extraordinary-business/)
+- [ehow make money](https://money.allwomenstalk.com/how-to-make-money-online-using-ehow/)
+- [how to nail a skype interview](https://money.allwomenstalk.com/how-to-nail-a-skype-interview/)
 - [skills needed to be a freelance writer](https://money.allwomenstalk.com/the-skills-and-characteristics-of-a-freelance-writer/)
-- [elle woods graduation cap](https://money.allwomenstalk.com/what-your-college-degree-means-to-an-employer/)
 - [how to become an expert in any field](https://money.allwomenstalk.com/become-an-expert-in-your-job-field-in-steps/)
 - [communication skills resume phrases](https://money.allwomenstalk.com/high-impact-phrases-to-make-your-resume-stand-out/)
-- [how to nail a skype interview](https://money.allwomenstalk.com/how-to-nail-a-skype-interview/)
 - [7 Satisfying but Highly Dangerous Travel Jobs ...](https://travel.allwomenstalk.com/satisfying-but-highly-dangerous-travel-jobs/)
 - [8 Reasons to Quit Your Job ...](https://allwomenstalk.com/8-reasons-to-quit-your-job/)
 
